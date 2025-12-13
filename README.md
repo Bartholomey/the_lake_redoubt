@@ -37,4 +37,4 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXIV — Bolečina nežnosti](julija/24_chapter_twenty-four.md)
 - [Chapter XXV — Usmrtitvena simetrija](julija/25_chapter_twenty-five.md)
 - [Chapter XXVI — Fragmenti krvoločnosti](julija/26_chapter_twenty-six.md)
-- [Epilogue](julija/27_epilogue.md)
+- [Epilogue](julija/epilogue.md)
