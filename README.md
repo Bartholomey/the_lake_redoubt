@@ -16,7 +16,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter III — Reka](julija/03_chapter_three.md)
 - [Chapter IV — Rdeča trdnjava](julija/04_chapter_four.md)
 - [Chapter V — Napaka](julija/05_chapter_five.md)
-- [Chapter VI — Sanje](julija/06_chapter_six.md)
+- [Chapter VI — Sanjski ples](julija/06_chapter_six.md)
 - [Chapter VII — Jedro](julija/07_chapter_seven.md)
 - [Chapter VIII — Angel praznine](julija/08_chapter_eight.md)
 - [Chapter IX — Protinapad](julija/09_chapter_nine.md)
