@@ -83,6 +83,7 @@ There is a very old blockade in me which dates back to the kindergarten days, an
 There is no place for the sentiment and æsthetics emanating from Lake Redoubt and Julija’s story in Slovenian society. Its dishonest socialist, or Catholic, humility had already hurt me at a tender age. “You want world peace!” said the teacher when she heard my New Year’s wish.
 
 **179**
+
 There’s a recurring dream I have: I’m chased by a ghost-like woman, but she does not have my ghostly form from July, nor is she Julija, or even her corrupted version. Her hair covers only the upper part of her face. She is always silent. She stalks me. Today, I somehow managed to hurt her legs, so she would not be able to pursue me. I was dining in a big, grey room with other people; they were not my relatives or my friends. She appears on the opposite side of the room, and I say in a mocking tone, “There she goes again!” but no one seems to care. I get up and move to the left corner, then up, but she cuts me off. This time, she does not track my footsteps. I scream and wake up.
 
 She actually appeared on crutches, so I loudly ridiculed her because she was so comical. A ghost on crutches.
