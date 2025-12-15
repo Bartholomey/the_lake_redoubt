@@ -30,7 +30,7 @@ Moj odgovor: “You really like the Fortress, don’t you? Despite all the stab-
 
 **49**
 
-Had I said, “Don’t coddle me. Be my adversary. Attack me!! – If only for a little period of time,” what would have your attacks looked like?”
+Had I said, “Don’t coddle me. Be my adversary. Attack me!! – If only for a short period of time,” what would have your attacks looked like?”
 
 *Symmetry Stranger odgovori z osmimi napadi, od katerih izstopa zadnji: Rdeča trdnjava me je vsekakor sodila.*
 
