@@ -32,7 +32,7 @@ je oni, ki potiska kroglo naprej, levo, desno, nazaj in ki jo tudi kleše. Ne gl
 
 **7**
 
-Tisto nekaj, kar samostojno določa  tvojo in njegovo lastno vrednost oziroma pripadnost temu ali onemu razredu; posamezne sposobnosti ali orodja prvak črpa iz svojega ali tujega ogrodja. Hudo  osiromašeni prvak? – Nič manj pripadnik prvega razreda. Besede in orodja: same in sama vam samostojno ne bodo podarila neke nove vrednosti, ki bi se, razkrižavši niti predhodne, vlila v vašo kri, se vtkala v vaše meso.
+*Tisto nekaj,* kar samostojno določa  tvojo in njegovo lastno vrednost oziroma pripadnost temu ali onemu razredu; posamezne sposobnosti ali *orodja* prvak črpa iz svojega ali tujega ogrodja. Hudo  osiromašeni prvak? – Nič manj pripadnik prvega razreda. Besede in orodja: same in sama vam samostojno ne bodo podarila neke nove vrednosti, ki bi se, razkrižavši niti predhodne, vlila v vašo kri, se vtkala v vaše meso.
 
 **8**
 
@@ -50,11 +50,11 @@ Popolnoma sam je zmogel ostati na poti, vredni pokončnega človeka, kakor ni bi
 
 **10**
 
-Dve vrsti. — Od nekdaj sta obstajali dve vrsti ljudi: gospodarji in podaniki, prvaki in dolnjerazredneži. Prvaški red je danes v primerjavi z drugim, maso, sestavljeno iz posameznikov, ki jih je moč najti povsod in v izobilju, maloštevilen in raztresen. Zaradi silne medsebojne podobnosti so ljudje drugega reda pogrešljivi oziroma nadomestljivi, saj lahko vsakemu tovrstnemu človeku nemudoma najdemo ustreznika oziroma posameznika, ki se po samem bistvu od prejšnjega nikakor ne razlikuje – vsaj ne tam, kjer zares šteje.
+*Dve vrsti.* — Od nekdaj sta obstajali dve vrsti ljudi: gospodarji in podaniki, prvaki in dolnjerazredneži. Prvaški red je danes v primerjavi z drugim, maso, sestavljeno iz posameznikov, ki jih je moč najti povsod in v izobilju, maloštevilen in raztresen. Zaradi silne medsebojne podobnosti so ljudje drugega reda pogrešljivi oziroma nadomestljivi, saj lahko vsakemu tovrstnemu človeku nemudoma najdemo ustreznika oziroma posameznika, ki se po samem bistvu od prejšnjega nikakor ne razlikuje – vsaj ne tam, kjer zares šteje.
 
 **11**
 
-Za ceno ostalega. — Ni življenja brez uničevanja, ni sreče brez trpljenja, ni lepega v odsotnosti studa. Strah ... strah je tisto, kar jih žene k ohranjanju njihovih teles, in iskren, prosojen strah, ne vera – zakaj čemu v brezdušni pošasti saditi duhovne ideje – je en od bistvenih vzmetov tega stroja, ki ji pravimo država. Teptajte, govoriš dalje, teptajte jih, saj so, kakor zakonik življenja priča, zakaj vesolje se tako odvija, takšnemu ravnanju vsekakor zapisani. Utekočinjanje tisoč tisočev, in kasneje še stvarjanje groz, je en od zakonov, ki ga narava terja že od svojega samega rojstva, saj živa bitja preko razkrajanja drugih živih bitij zagotavljajo njen lastni obstoj.
+*Za ceno ostalega.* — Ni življenja brez uničevanja, ni sreče brez trpljenja, ni lepega v odsotnosti studa. Strah ... strah je tisto, kar jih žene k ohranjanju njihovih teles, in iskren, prosojen strah, ne vera – zakaj čemu v brezdušni pošasti saditi duhovne ideje – je en od bistvenih vzmetov tega stroja, ki ji pravimo država. Teptajte, govoriš dalje, teptajte jih, saj so, kakor zakonik življenja priča, zakaj vesolje se tako odvija, takšnemu ravnanju vsekakor zapisani. Utekočinjanje tisoč tisočev, in kasneje še stvarjanje groz, je en od zakonov, ki ga narava terja že od svojega samega rojstva, saj živa bitja preko razkrajanja drugih živih bitij zagotavljajo njen lastni obstoj.
 
 Graja neke starešine: »Odpustite mladim njihove ostre besede, ko vendar želé, čeravno količkaj zaletavo, dokazati in izpostaviti svojo veljavo. Ne karajte jih, no, preostró, ko jih prevzamejo strasti, ne preklinjajte njihove duše, ko si z njimi zameglijo razum, da bi mu ušli – neulovljiv, nenajdljiv je tedaj. Raje se opomnimo: telo, četudi telo pokončnih rodov, je še vedno telo in zato pripada njima, življenju, zemlji.«
 
@@ -94,7 +94,7 @@ Vladanje in deljenje pravice s strani zemljiške gospode upravičuje dejstvo nje
 
 **20**
 
-V primeru, da se v tujih mislih začneš izrisovati poživinjen, boš stremel za tem, da se v njih takšna podoba izbriše skozi niz dejanj, vrednih pokončnega človeka, ali pa boš takšne glave ugonobil bodi po zlu poslal samega sebe; odlašanje in dolga, blatna pot te razjedata, rane pa krpata s pomilovanja vrednim žolčem; vse ostalo je postranskega pomena. In naj bo ta ali ona sposobnost ali veščina še tako velika in redka, umazana mora stati v senci gnusa, ki ga je priklical živinski značaj. 
+V primeru, da bi se v tujih mislih začel izrisovati poživinjen, boš stremel za tem, da se v njih takšna podoba izbriše skozi niz dejanj, vrednih pokončnega človeka, ali pa boš takšne glave ugonobil bodi po zlu poslal samega sebe; odlašanje in dolga, blatna pot te razjedata, rane pa krpata s pomilovanja vrednim žolčem; vse ostalo je postranskega pomena. In naj bo ta ali ona sposobnost ali veščina še tako velika in redka, umazana mora stati v senci gnusa, ki ga je priklical živinski značaj. 
 
 **21**
 
