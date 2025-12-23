@@ -1,6 +1,5 @@
 # Julija in njena vojna
 
-The Lake Redoubt
 
 This book is a work of fiction.  
 It depicts violence, abuse, and self-harm.  
@@ -37,3 +36,23 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXIV — Usmrtitvena simetrija](julija/24_chapter_twenty-four.md)
 - [Chapter XXV — Fragmenti krvoločnosti](julija/25_chapter_twenty-five.md)
 - [Epilogue](julija/epilogue.md)
+
+---
+
+# The Lake Redoubt
+
+
+This book is a work of fiction. 
+It does not represent the views of the author. 
+It is not addressed to a potential reader.
+
+---
+
+## Contents
+
+- [Poglavje I — Uvod](krepost/01_uvod.md)
+- [Poglavje II — Kaj je plemstvo in na kakšnih temeljih mu gre graditi trdnjavo](krepost/02_kaj_je_plemstvo.md)
+- [Poglavje III — Žuboreča druga polovica](krepost/03_druga_polovica.md)
+- [Poglavje IV — Projektorja sovražne, zgoščene, lepljive črnine](krepost/04_projektorja.md)
+- [Poglavje V — Vrhunec](krepost/05_vrhunec.md)
+- [Poglavje VI — ...](krepost/06_-.md)
