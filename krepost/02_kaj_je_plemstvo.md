@@ -5,7 +5,7 @@
 
 **26**
 
-Zmagal bo človek, ki je zagledan v nesnovnost. Takšna vdanost takšnemu nenaravnemu objektu, ki opazovalčevo telo tako v primeru njegovega verjetnega preživetja kot tudi neizogibne smrti obdrži na bojnem polju. — Bodoč podvržen najvišjemu zakonu narave, robotnik za ohranitev svojega življenja zakrivi najnizkotnejši izraz neizrekljivosti, medtem ko je svet misli tako prevzel tvoje notranje oko, da kraljuje tvojemu telesu, in zaradi neke slike v tem nadnaravnem predelu bo človek kljub neizbežnemu porazu ostal na bojišču. Svet misli pronica skozi človeka in dominira živo naravo. Za človeka se ne spodobi, da bi bil hvaležen za dejstvo svojega rojstva, temveč, vkolikor se je sprijaznil s svojo mesnato kletko, za sposobnosti, ki mu ta zemeljski zapor pomagajo karseda ukriviti in preoblikovati, da bi se vsaj približeval nekemu videzu navidezne spodobnosti.
+Zmagal bo človek, ki je zagledan v nesnovnost. *Takšna vdanost takšnemu nenaravnemu objektu, ki opazovalčevo telo tako v primeru njegovega verjetnega preživetja kot tudi neizogibne smrti obdrži na bojnem polju.* — Bodoč podvržen najvišjemu zakonu narave, robotnik za ohranitev svojega življenja zakrivi najnizkotnejši izraz neizrekljivosti, medtem ko je svet misli tako prevzel tvoje notranje oko, da kraljuje tvojemu telesu, in zaradi neke slike v tem nadnaravnem predelu bo človek kljub neizbežnemu porazu ostal na bojišču. Svet misli pronica skozi človeka in dominira živo naravo. Za človeka se ne spodobi, da bi bil hvaležen za dejstvo svojega rojstva, temveč, vkolikor se je sprijaznil s svojo mesnato kletko, za sposobnosti, ki mu ta zemeljski zapor pomagajo karseda ukriviti in preoblikovati, da bi se vsaj približeval nekemu videzu navidezne spodobnosti.
 
 **27**
 
@@ -68,6 +68,7 @@ Množica postane prikupna šele, ko jo prežema strah, v tla usmerjeni pogledi p
 V tej skupnosti, katere oblika in značaj temeljita na odnosu med podjarmljenci in gospodarji, ki ga je uvedla zveza s smrtjo spoprijateljenih mož, s smrtjo, ki je bila imenovana za edino stvarno preizkuševalko, zakonodajalko in podeljevalko pravic in privilegijev, ne gre zate, posameznik, temveč za lepoto, vzvišenost in moč, za spoštovanje nenapisanih pravil dostojnega vedenja oziroma za ostajanje v predelih žlebú plemenitosti.
 
 **42**
+
 Ko si prišel v stik z ljudmi malih okroglih glav, vse do danes po zemlji praskajočimi tako neutrudno, da žgočim žarkom pustijo do razbolelosti penetrirati svojo kožo, si začel spoznavati, zavevši se lastne večvrednosti, nad njimi zavladavši, resnično višino svojega porekla, kar te je skozi njegovo naglaševanje, vodeče v stvaritev družbenih redov in predpravic, napravilo ošabnega.
 
 **43**
