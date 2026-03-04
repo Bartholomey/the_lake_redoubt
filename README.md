@@ -36,6 +36,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXIV — Usmrtitvena simetrija](julija/24_chapter_twenty-four.md)
 - [Chapter XXV — Fragmenti krvoločnosti](julija/25_chapter_twenty-five.md)
 - [Epilogue](julija/epilogue.md)
+- [The resignation, part one](julija/the_resignation_part_one.md)
 
 ---
 
