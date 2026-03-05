@@ -35,8 +35,9 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXIII — Bolečina nežnosti](julija/23_chapter_twenty-three.md)
 - [Chapter XXIV — Execution Symmetry](julija/24_chapter_twenty-four.md)
 - [Chapter XXV — Bloodlust Fragments](julija/25_chapter_twenty-five.md)
+-  
 - [Summer dream](julija/epilogue.md)
-- [The resignation, part one](julija/the_resignation_part_one.md)
+- [The Resignation, Part One](julija/the_resignation_part_one.md)
 
 ---
 
