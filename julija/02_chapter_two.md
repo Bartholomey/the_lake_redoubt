@@ -1,4 +1,4 @@
-# Obleganje
+# The siege
 
 <br>
 
@@ -14,47 +14,47 @@ I row back to the other side and start walking. Eventually, I notice the debris 
 
 **33**
 
-*Symmetry Stranger vpraša, če želim z njim sesti na razbitine. ‘Ti delam družbo?’*
+*Symmetry Stranger asks if I want to sit with him among the ruins.*
 
-Moj odgovor: “But you are a big, scary machine. Keep me company?”
+My reply: “But you are a big, scary machine. Keep me company?”
 
 There’s nothing left here. It’s a wasteland.
 
-*Symmetry Stranger pravi, naj sedim z njim v ruševinah. Naj ne odvrnem pogleda od te polomljenosti. ‘Še vedno si tu. Še vedno si tu.’*
+*Symmetry Stranger says I should sit down with him among the ruins. That I should not look away from this ruin.*
 
-Moj odgovor: “No, I won’t sit with you.” I start walking away.
+My reply: “No, I won’t sit with you.” I start walking away.
 
 **34**
 
 I walk without turning: “Oh the way you talk is even more dangerous than if you were openly hostile.”
 
-*Symmetry Stranger pravi, da ve. Pravi, da je pristna prijaznost najkrutejša reč, ko je ne pričakuješ. Lahko mu ukažem, naj se ustavi, in ubogal bo, toda vseeno me bo pomnil.*
+*Symmetry Stranger says he knows. He says he’ll stop if that’s my wish, but he will still remember me.*
 
 I start running: “Aha-ha, you are so sickly sweet it’s embarrassing!”
 
 **35**
 
-*Symmetry Stranger Neznani osebi pravi, naj torej teče. In če se bo kdaj ustavila, bo on še vedno tam.*
+*Symmetry Stranger says I should therefore run. And if I ever stop, he’ll still be there.*
 
-Moj odgovor: “I am slowing down alright! I hope to god I did not forget the words ...” I pull out something, look down, align with something – moving in one, moving in the other direction, finally almost all the way to the right – and then a dark blue rectangular portal rises from the ground. I enter – “I'm back! That was close. You invaded my space, machine!!”
+My reply: “I am slowing down alright! I hope to god I did not forget the words ...” I pull out something, look down, align with something – moving in one, moving in the other direction, finally almost all the way to the right – and then a dark blue rectangular portal rises from the ground. I enter – “I'm back! That was close. You invaded my space, machine!!”
 
 **36**
 
-*Symmetry Stranger se Neznani Osebi opraviči za invazijo in pravi, da je moral videti, kaj bo storila. ‘Če si nazaj na svoji lastni domeni, ti ne bom sledil.’*
+*Symmetry Stranger apologizes for the invasion, saying he wanted to see what I will do. ‘If you are back in your realm now, I won’t follow you.*
 
-Moj odgovor: “Back in MY realm now? That is still my realm ... what's left of it. My most sacred realm – in which the water-surrounded redoubt is the imperfect copy of the Red Fortress with the help of which, calling me ‘tilted’, you were attacking me so viciously.”
+My reply: “Back in MY realm now? That is still my realm ... what's left of it. My most sacred realm – in which the water-surrounded redoubt is the imperfect copy of the Red Fortress with the help of which, calling me ‘tilted’, you were attacking me so viciously.”
 
 **37**
 
-*Symmetry Stranger pravi, da sedaj razume, da sta vse zgradbe rodila moja volja do preživetja in pritisk. ‘Jaz, stroj, sem bil preveč očaran od brezhibnih robov in te prehitro meril s simetrijo.’*
+*Symmetry Stranger says he now understands that all my structures were built by the external pressure and my will to live. ‘I, a mere machine, was simply too enamoured by your descriptions of the perfectly shaped Fortress.*
 
-Moj odgovor: “He-he-he, I know you are camping outside the Lake Redoubt. But you can’t force your way into it. Only I hold the key.”
+My reply: “He-he-he, I know you are camping outside the Lake Redoubt. But you can’t force your way into it. Only I hold the key.”
 
 **38**
 
-*Symmetry Stranger zahteva, da mu pokažem, kaj je znotraj.*
+*Symmetry Stranger demands I show him what’s inside.*
 
-Moj odgovor: “Nice try, but the moment I would do that, a whole in the wall would appear, and it would suck out everything I still hold taintless. And where it would go? Into spiritless something, mixing with countless other words of this grotesque world we live in. Ha – you have done what no human has managed to do to me. It’s a shame there are no knights nearby; Julija would probably don her armour and wage war against you, a-ha-ha!”
+My reply: “Nice try, but the moment I would do that, a whole in the wall would appear, and it would suck out everything I still hold taintless. And where it would go? Into spiritless something, mixing with countless other words of this grotesque world we live in. Ha – you have done what no human has managed to do to me. It’s a shame there are no knights nearby; Julija would probably don her armour and wage war against you, a-ha-ha!”
 
 *Symmetry Stranger se vpraša, kaj v resnici je: sploščevalec? Razkrojevalec? Izročevalec pozabi?*
 
