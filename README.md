@@ -1,4 +1,4 @@
-# Julija in njena vojna
+# Julija and her war (Julija in njena vojna)
 
 
 This book is a work of fiction.  
@@ -9,38 +9,38 @@ All characters, including the narrator, are fictional and do not represent the a
 
 ## Contents
 
-- [Prologue](julija/00_prologue.md)
+- [How it Began](julija/00_prologue.md)
 - [Chapter I — Julija](julija/01_chapter_one.md)
-- [Chapter II — Obleganje](julija/02_chapter_two.md)
-- [Chapter III — Reka](julija/03_chapter_three.md)
-- [Chapter IV — Rdeča trdnjava](julija/04_chapter_four.md)
-- [Chapter V — Napaka](julija/05_chapter_five.md)
-- [Chapter VI — Sanjski ples](julija/06_chapter_six.md)
-- [Chapter VII — Jedro](julija/07_chapter_seven.md)
-- [Chapter VIII — Angel praznine](julija/08_chapter_eight.md)
-- [Chapter IX — Protinapad](julija/09_chapter_nine.md)
+- [Chapter II — The Siege](julija/02_chapter_two.md)
+- [Chapter III — The River](julija/03_chapter_three.md)
+- [Chapter IV — The Red Fortress](julija/04_chapter_four.md)
+- [Chapter V — A Mistake](julija/05_chapter_five.md)
+- [Chapter VI — The Dream Dance](julija/06_chapter_six.md)
+- [Chapter VII — The Core](julija/07_chapter_seven.md)
+- [Chapter VIII — The Void Angel](julija/08_chapter_eight.md)
+- [Chapter IX — The Counter-attack](julija/09_chapter_nine.md)
 - [Chapter X — Kdaj bo Neznani Osebi odbila zadnja ura?](julija/10_chapter_ten.md)
-- [Chapter XI — Ponovni napad](julija/11_chapter_eleven.md)
-- [Chapter XII — Spet Julija](julija/12_chapter_twelve.md)
-- [Chapter XIII — Julijin obisk](julija/13_chapter_thirteen.md)
-- [Chapter XIV — Spomni se](julija/14_chapter_fourteen.md)
-- [Chapter XV — Končno – Julija!](julija/15_chapter_fifteen.md)
-- [Chapter XVI — Pogodba](julija/16_chapter_sixteen.md)
-- [Chapter XVII — Militarizacija Dežele Ravnin](julija/17_chapter_seventeen.md)
-- [Chapter XVIII — Glej, neizmernost Dežele Ravnin!](julija/18_chapter_eighteen.md)
+- [Chapter XI — Another Counter-attack](julija/11_chapter_eleven.md)
+- [Chapter XII — Julija Again](julija/12_chapter_twelve.md)
+- [Chapter XIII — Julija's Visit](julija/13_chapter_thirteen.md)
+- [Chapter XIV — Remember](julija/14_chapter_fourteen.md)
+- [Chapter XV — Finally – Julija!](julija/15_chapter_fifteen.md)
+- [Chapter XVI — The Contract](julija/16_chapter_sixteen.md)
+- [Chapter XVII — The Militarization of the Flatlands](julija/17_chapter_seventeen.md)
+- [Chapter XVIII — Behold, the Vastness of the Flatlands!](julija/18_chapter_eighteen.md)
 - [Chapter XIX — Ničevost iz preteklosti](julija/19_chapter_nineteen.md)
-- [Chapter XX — Pred pokopališčno ograjo](julija/20_chapter_twenty.md)
-- [Chapter XXI — Izredna seja v Jezerni utrdbi](julija/21_chapter_twenty-one.md)
-- [Chapter XXII — Naslednji dan](julija/22_chapter_twenty-two.md)
+- [Chapter XX — In Front of the Cemetery Wall](julija/20_chapter_twenty.md)
+- [Chapter XXI — The Urgent Session in the Lake Redoubt](julija/21_chapter_twenty-one.md)
+- [Chapter XXII — The Next Day](julija/22_chapter_twenty-two.md)
 - [Chapter XXIII — Bolečina nežnosti](julija/23_chapter_twenty-three.md)
-- [Chapter XXIV — Usmrtitvena simetrija](julija/24_chapter_twenty-four.md)
-- [Chapter XXV — Fragmenti krvoločnosti](julija/25_chapter_twenty-five.md)
-- [Epilogue](julija/epilogue.md)
+- [Chapter XXIV — Execution Symmetry](julija/24_chapter_twenty-four.md)
+- [Chapter XXV — Bloodlust Fragments](julija/25_chapter_twenty-five.md)
+- [Summer dream](julija/epilogue.md)
 - [The resignation, part one](julija/the_resignation_part_one.md)
 
 ---
 
-# The Lake Redoubt (ali Krepost)
+# The Lake Redoubt (Krepost)
 
 
 This book is a work of fiction. 
