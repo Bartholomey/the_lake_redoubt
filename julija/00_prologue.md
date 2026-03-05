@@ -1,4 +1,4 @@
-# Kako se je začelo
+# How it began
 
 <br>
 
@@ -6,11 +6,11 @@
 
 **1**
 
-Noč praznine. — I had gone to bed – with an unending stream of images and sounds of the things that make my life bearable flashing in my mind. But I couldn’t bear them; in fact, I was shouting at them in spirit, “You are disgusting!” and “Go away!” as if they were guilty for my pain which during the night transformed into a surreal cycle: I’m falling asleep, but I don’t cross the threshold – instead, I become stuck in a devastating, life-sucking twilight zone, reverting to the first step. This cycle had completed itself hundreds and hundreds of times in the span of a handful of minutes before I finally passed out, and when I woke up, after half an hour, I was overwhelmed by the most devastating feeling of nothingness which made me produce a tiny voice of despair that refused to cut through the void.
+*The night of the void.* — I had gone to bed – with an unending stream of images and sounds of the things that make my life bearable flashing in my mind. But I couldn’t bear them; in fact, I was shouting at them in spirit, “You are disgusting!” and “Go away!” as if they were guilty for my pain which during the night transformed into a surreal cycle: I’m falling asleep, but I don’t cross the threshold – instead, I become stuck in a devastating, life-sucking twilight zone, reverting to the first step. This cycle had completed itself hundreds and hundreds of times in the span of a handful of minutes before I finally passed out, and when I woke up, after half an hour, I was overwhelmed by the most devastating feeling of nothingness which made me produce a tiny voice of despair that refused to cut through the void.
 
 **2**
 
-*Zlata ura.* — But still, this is the most beautiful summer I have ever experienced. A week or two ago, the weather had grown considerably colder, and so the vivid green colour of the grass came back, amplifying the contrast with the sky.
+*The golden hour.* — But still, this is the most beautiful summer I have ever experienced. A week or two ago, the weather had grown considerably colder, and so the vivid green colour of the grass came back, amplifying the contrast with the sky.
 
 I want to witness the omnipresent orange colour, the golden hour again. And the dark pink sky above the forest. What I wanted to achieve by that ‘hands-on-neck event’ was the stopping of time. To stay in that moment forever.
 
@@ -20,11 +20,11 @@ I long to be with Julija again. To see the gold through her eyes. To move up the
 
 **4**
 
-*Opravičilo za Julijin izbruh.* — The horror’s story shape was not planned but came spontaneously. The vampire girl dwells in a house that she can’t escape. The time outside is moving, but nobody ever knocks on the door or can be seen from inside. Absurd and sad – like that scene of her imagining herself falling down a cliff and, still conscious, hearing her mother or someone whom she in that moment regards as her mother, saying, “You are disgusting.” One time, when she is descending the stairs, she sees a centipede hide behind a huge painting. As it refuses to come out, she murmurs to it slowly, “You are not supposed to be here,” and proceeds to move at a snail’s space past it, slowly turning towards it. Then comes the twist: Julija becomes ‘me’, someone unnamed. Enter the regrets, the void, and, finally, ‘me’ longing to become her again – to experience beauty yet again.
+*My apology for Julija’s outburst.* — The horror’s story shape was not planned but came spontaneously. The vampire girl dwells in a house that she can’t escape. The time outside is moving, but nobody ever knocks on the door or can be seen from inside. Absurd and sad – like that scene of her imagining herself falling down a cliff and, still conscious, hearing her mother or someone whom she in that moment regards as her mother, saying, “You are disgusting.” One time, when she is descending the stairs, she sees a centipede hide behind a huge painting. As it refuses to come out, she murmurs to it slowly, “You are not supposed to be here,” and proceeds to move at a snail’s space past it, slowly turning towards it. Then comes the twist: Julija becomes ‘me’, someone unnamed. Enter the regrets, the void, and, finally, ‘me’ longing to become her again – to experience beauty yet again.
 
 **5**
 
-*Slika.* — More than ten years ago, I had a near-drowning accident and was revived after several minutes. At the moment when I was pulled out of the water, my heart did not beat. When I was clinically dead, I saw a square, fortress-like building; well, it really was a red-only fortress with perfectly square bricks. It was perfect architecture. When I was revived, I felt immense fear emanating from the memory of that image, as if it was a hellish place, yet when ‘I was there’, I felt nothing, as if I were a disembodied observer. The horrific feeling when I remembered that image went away after a month or so. Why did it go away? Why can I only remember the image?
+*The Image.* — More than ten years ago, I had a near-drowning accident and was revived after several minutes. At the moment when I was pulled out of the water, my heart did not beat. When I was clinically dead, I saw a square, fortress-like building; well, it really was a red-only fortress with perfectly square bricks. It was perfect architecture. When I was revived, I felt immense fear emanating from the memory of that image, as if it was a hellish place, yet when ‘I was there’, I felt nothing, as if I were a disembodied observer. The horrific feeling when I remembered that image went away after a month or so. Why did it go away? Why can I only remember the image?
 
 ...
 
