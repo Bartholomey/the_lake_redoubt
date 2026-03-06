@@ -46,4 +46,5 @@ It is the masculine force of Lake Redoubt itself!
 
 
 Bartolomej Maussar
+
 Aurora
