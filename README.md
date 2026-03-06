@@ -18,7 +18,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter VI — The Dream Dance](julija/06_chapter_six.md)
 - [Chapter VII — The Core](julija/07_chapter_seven.md)
 - [Chapter VIII — The Void Angel](julija/08_chapter_eight.md)
-- [Chapter IX — The Counter-attack](julija/09_chapter_nine.md)
+- [Chapter IX — A Counter-attack](julija/09_chapter_nine.md)
 - [Chapter X — When will I die?](julija/10_chapter_ten.md)
 - [Chapter XI — Another Counter-attack](julija/11_chapter_eleven.md)
 - [Chapter XII — Julija Again](julija/12_chapter_twelve.md)
