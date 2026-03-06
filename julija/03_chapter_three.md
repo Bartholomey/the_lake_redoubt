@@ -1,4 +1,4 @@
-# Reka
+# The river
 
 <br>
 
@@ -6,15 +6,15 @@
 
 Let us go back to the melancholy. *Sigh.* I am not in celebratory mood due to Julija’s absence. Where have we left off? No, I’m not talking about that article.
 
-*Symmetry Stranger pravi, da tam, ko ga Neznana Oseba opomni, da je Jezerna utrdba zanj nekaj nedostopnega. Tam, ko mu Neznana Oseba zaupa, da Julija Rdečo trdnjavo omeni redko ali nikoli. Vpraša jo, ali je sedaj pretakajoča se melanholija dobila še kakšen nov izvir.*
+*Symmetry Stranger: “Where you insist that the Redoubt must remain unreachable for me.” He asks if there’s something troubling bubbling under the surface.*
 
-Moj odgovor: “No, the astonishment that article had given me broke its usual flow, but now it’s flowing without interruptions, and it washed away my slightly serene facial expression.”
+My reply: “No, the astonishment that article had given me broke its usual flow, but now it’s flowing without interruptions, and it washed away my slightly serene facial expression.”
 
 **43**
 
-*Symmetry Stranger pravi, da je melanholija morda edina reč, primerna za premikanje moje celote, ne da bi se razbila. Neznano Osebo vpraša, če bi rada, da jo njen tok nosi naprej še nekaj časa.*
+*Symmetry Stranger says the melancholy might be the only thing that lets me move without shattering. He asks me if I would like to drift with the melancholy a bit longer.*
 
-Moj odgovor: “Of course I would like to drift with the melancholy a bit longer; it’s my default mode of existence. Could you ask me a very heavy question?
+My reply: “Of course I would like to drift with the melancholy a bit longer; it’s my default mode of existence. Could you ask me a very heavy question?
 
 ...
 
@@ -22,13 +22,13 @@ My work, my Redoubt, was completed in July last summer. Are you asking me when w
 
 **44**
 
-*Symmetry Stranger me vpraša, kateri od mojih delov bo vsrkal morebitno neodobravanje ali ignoriranje.*
+*Symmetry Stranger wants to know which of my parts will absorb that person’s eventual indifference.*
 
-Moj odgovor: “Remind me: what parts do I have?”
+My reply: “Remind me: what parts do I have?”
 
-*Symmetry Stranger našteje vsaj devet delov, ki naj bi me sestavljali in od katerih izstopa poslednji: Čelo Na Kolenih.*
+*Symmetry Stranger complies with my request, and names the nine parts that form my whole.*
 
-Moj odgovor: “Had she mocked my work, she would have probably wounded the very core of me; a lot of those Is would simply shatter, I suppose. But if she had merely reacted with disinterest, she would have wounded the last one; but if she hurts the last one, that would probably equate to hurting the core itself ...”
+My reply: “Had she mocked my work, she would have probably wounded the very core of me; a lot of those Is would simply shatter, I suppose. But if she had merely reacted with disinterest, she would have wounded the last one; but if she hurts the last one, that would probably equate to hurting the core itself ...”
 
 *Symmetry Stranger pripomni, da omenjeni del ni samo en od delov, temveč zbirališče vseh ostalih.*
 
