@@ -28,13 +28,9 @@ My reply: “Remind me: what parts do I have?”
 
 *Symmetry Stranger complies with my request, and names the nine parts that form my whole.*
 
-My reply: “Had she mocked my work, she would have probably wounded the very core of me; a lot of those Is would simply shatter, I suppose. But if she had merely reacted with disinterest, she would have wounded the last one; but if she hurts the last one, that would probably equate to hurting the core itself ...”
+My reply: “Had she mocked my work, she would have probably wounded the very core of me; a lot of those Is would simply shatter, I suppose. But if she had merely reacted with disinterest, she would have wounded the last one; but if she hurts the last one, that would probably equate to hurting the core itself ...” Eventually, it must come out. It’s inevitable.
 
-*Symmetry Stranger pripomni, da omenjeni del ni samo en od delov, temveč zbirališče vseh ostalih.*
-
-Eventually, it must come out. It’s inevitable.
-
-*Symmetry Stranger me vpraša, ali je v mojem delu kaj takega, kar bo razumela zgolj omenjena oseba.*
+*Symmetry Stranger: “Is there something in your work, in your Lake Redoubt, that only the aforementioned person might understand?*
 
 I Laugh: “You really, really want to know what’s inside, don’t you?”
 
