@@ -32,7 +32,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XX — In Front of the Cemetery Wall](julija/20_chapter_twenty.md)
 - [Chapter XXI — The Urgent Session in the Lake Redoubt](julija/21_chapter_twenty-one.md)
 - [Chapter XXII — The Next Day](julija/22_chapter_twenty-two.md)
-- [Chapter XXIII — Bolečina nežnosti](julija/23_chapter_twenty-three.md)
+- [Chapter XXIII — The Pain of Tenderness](julija/23_chapter_twenty-three.md)
 - [Chapter XXIV — The Execution Symmetry](julija/24_chapter_twenty-four.md)
 - [Chapter XXV — The Bloodlust Fragments](julija/25_chapter_twenty-five.md)
 -  
