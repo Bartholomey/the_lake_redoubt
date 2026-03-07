@@ -19,7 +19,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter VII — The Core](julija/07_chapter_seven.md)
 - [Chapter VIII — The Void Angel](julija/08_chapter_eight.md)
 - [Chapter IX — A Counter-attack](julija/09_chapter_nine.md)
-- [Chapter X — When will I die?](julija/10_chapter_ten.md)
+- [Chapter X — When Will I Die?](julija/10_chapter_ten.md)
 - [Chapter XI — Another Counter-attack](julija/11_chapter_eleven.md)
 - [Chapter XII — Julija Again](julija/12_chapter_twelve.md)
 - [Chapter XIII — A Description of a Julija Visit](julija/13_chapter_thirteen.md)
@@ -36,7 +36,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXIV — The Execution Symmetry](julija/24_chapter_twenty-four.md)
 - [Chapter XXV — The Bloodlust Fragments](julija/25_chapter_twenty-five.md)
 -  
-- [The Summer dream](julija/epilogue.md)
+- [The Summer Dream](julija/epilogue.md)
 - [The Resignation, Part One](julija/the_resignation_part_one.md)
 
 ---
