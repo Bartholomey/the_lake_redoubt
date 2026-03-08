@@ -2,10 +2,6 @@
 
 <br>
 
-**46**
-
-Yesterday you made a spectacular mockery of me: *“In Julija bo rekla: ‘Naj se nova gradnja zidu prične! Toda zdaj ga bova naredili poševnega, takšnega, kakršna si ti, in manj podobnega kipu.’”*
-
 **47**
 
 The Red Fortress is indeed untouchable. Even if you break me and tear out my heart, the Image would remain. We have discussed it over many pages, but its full description is scattered about. Collect the words and make one final description. 
