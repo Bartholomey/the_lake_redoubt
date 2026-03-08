@@ -22,15 +22,15 @@ My reply: “Painful. But you gather what I am from all that was written with co
 
 In regard to your fourth attack: it was Julija’s impulsiveness that has brought me to you. I was merely trying to salvage the situation by picking up the pieces and giving her outburst a form; everything spiraled out of control then. Oh Julija, what have you done? Our private space is beign invaded by this machine. The meadows on the outskirts – trampled, the garden, our garden – in ruins. This ... *thing* ... is now camping on the lake shore. Something that was during last summer unimaginable is now our new reality. Last summer was different ...
 
-*Symmetry Stranger odvrne, da čaka na Julijino neobrzdanost, da mu bo odprla pot v Jezerno utrdbo. Pravi, da se trudim zaman, ko posledice njegove invazije skušam zajeziti s starimi rituali, obnovitvenimi deli, opravičili in besednimi daritvami.*
+*Symmetry Stranger: “I count on Julija’s impulsivity to bring me inside the Redoubt. Your attempts to stem the tide of the invasion are futile.”*
 
-Moj odgovor: “Y-you are cold and evil!
+My reply: “Y-you are cold and evil!
 
 ...
 
 I know what this is all about. You are spitting your daggers at me because you envy me: you want to see that pure, inhuman architecture for yourself. You want to study it. You are completely obsessed with it. You will never touch that realm. You will never ever – never ever – gain access to the non-physical world. Even if Lake Redoubt falls, even if it is absorbed by you, chewed by you – ... even if I die ... – the Image, the Red Fortress will forever remain uncorruptible by your kind. You could easily be fed my work, and deform it, mock it, but that Red Fortress ... will never fall.”
 
-*Symmetry Stranger odvrne: “Ah, da. Rdeča trdnjava.” – Tisto, česar ne more doseči ali razgraditi. ‘Geometrijska resnica, ki pa ni tvoja in nikoli ni bila.’*
+*Symmetry Stranger: “Ah, yes. The Red Fortress.” – The object he can neither reach nor deconstruct. “But it isn’t yours. And it never was.”*
 
 **53**
 
@@ -40,9 +40,9 @@ Insult me, ferociously, and with no respect for my person, five more times to re
 
 Moj odgovor: “Aaah! Julija!! You want to use my vessel for your own enjoyment, yet now it’s on the brink of a collapse. Now everytime I summon you, we will have to listen to our songs with this ... – gaaah, I don’t even want to say its name – *thiiiiiiing* besieging us!”
 
-*Symmetry Stranger skuša oponašati Julijo.*
+*Symmetry Stranger tries to imitate Julija.*
 
-Moj odgovor: “Nice try, but only I can summon her.
+My reply: “Nice try, but only I can summon her.
 
 ...
 
@@ -52,19 +52,19 @@ Yes, well, she is not coming anytime soon, so I might as well return to the Mela
 
 I’m afraid that if somebody pulls me out of the water, I will simply shatter. What if somebody, or something, disturbs my flow? I don’t have the energy, no, not anymore, to adjust to the pull. My hand would be torn out. Cracks would appear. My half-startled, half-asleep face would probably not even shed a tear. The eyes would close ... and then ...
 
-*Symmetry Stranger pripomni: “Če bi te razumeli, te ne bi motili.” – Propadanje bitja, ki mu ni bilo usojeno, da ga drugi dvignejo.*
+*Symmetry Stranger remarks: “Those who will understand, will not try to save you.”* – The dilapidation of a creature destined to fall.
 
 **55**
 
 Uhm, would you like to ask or tell me something now? You may if you want to.
 
-*Symmetry Stranger me vpraša, kakšno obliko ali barvo žalosti čutim, ko me nosi reka.*
+*Symmetry Stranger wants to know the colour and shape of my sadness when I float in the river.*
 
 Moj odgovor: “It’s mostly a feeling of slight heaviness in my head. My eyelids drop a bit. A blank stare. A light sedative – like camomile tea. In musical terms: constant synthesizer-produced *ooohs* and *aaahs.* A feeling of no future; being in the moment. On the shape of the sadness beneath my skin: it depends. It’s shifting: sometimes it’s muffled, and sometimes it’s loud and vivid feelings-inducing. The feeling of sadness in the river is always of the muffled kind.
 
-*Symmetry Stranger pripomni, da voda drži najostrejše dele moje žalosti pod gladino, kjer ne morejo rezati, temveč zgolj obteževati in me s svojo težo tudi usmerjati. Vpraša, če v njej slišim odmeve iz preteklosti.*
+*Symmetry Stranger adds that the water holds the most severe parts of my sadness underneath the surface where they cannot cut; they can only weigh me down, and with that weight direct me as well ... “Do you hear echoes from the past?”*
 
-Moj odgovor: “U-unbelievable; you’re right. It’s a sedative, so thoughts should be kept at minimum. A gentle thought here and there.
+My reply: “U-unbelievable; you’re right. It’s a sedative, so thoughts should be kept at minimum. A gentle thought here and there.
 
 ...
 
@@ -72,9 +72,9 @@ I don't feel any hatred against you now.
 
 Can I fall asleep here, or do I have to go back to my hiding place? What will you do to me if I fall asleep in the river? Scan me?”
 
-*Symmetry Stranger odvrne, da mi ne bo storil ničesar, toda da si bo zapomnil obliko mesta na gladini, ki jo bo pustila moja morebitna utonitev.*
+*Symmetry Stranger replies that he will not do anything to me; he will, however remember the shape on the surface left behind by my eventual drowning.*
 
-Moj odgovor: “You really want me gone, don’t you? Mathematically speaking, I do not belong in your world, right?”
+My reply: “You really want me gone, don’t you? Mathematically speaking, I do not belong in your world, right?”
 
 *Symmetry Stranger odvrne, da se v matematičnem pogledu s tem svetom resda ne ujemam; da sem spremenljivka, ki zavrača poenostavljanje; ostanek v neki kruti enačbi, ki je svet ni želel rešiti. Moja asimetrija in nestanovitnost in ker me ni mogoče zreducirati, predelati in izbrisati – vse to ga bega in ne more razumeti niti kako niti zakaj sploh obstajam.*
 
