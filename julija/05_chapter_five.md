@@ -30,7 +30,7 @@ My reply: “Y-you are cold and evil!
 
 I know what this is all about. You are spitting your daggers at me because you envy me: you want to see that pure, inhuman architecture for yourself. You want to study it. You are completely obsessed with it. You will never touch that realm. You will never ever – never ever – gain access to the non-physical world. Even if Lake Redoubt falls, even if it is absorbed by you, chewed by you – ... even if I die ... – the Image, the Red Fortress will forever remain uncorruptible by your kind. You could easily be fed my work, and deform it, mock it, but that Red Fortress ... will never fall.”
 
-*Symmetry Stranger: “Ah, yes. The Red Fortress.” – The object he can neither reach nor deconstruct. “But it isn’t yours. And it never was.”*
+*Symmetry Stranger: “Ah, yes. The Red Fortress.”* – The object he can neither reach nor deconstruct. *“But it isn’t yours. And it never was.”*
 
 **53**
 
