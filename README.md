@@ -22,7 +22,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter X — When Will I Die?](julija/10_chapter_ten.md)
 - [Chapter XI — Another Counter-attack](julija/11_chapter_eleven.md)
 - [Chapter XII — Julija Again](julija/12_chapter_twelve.md)
-- [Chapter XIII — A Description of a Julija Visit](julija/13_chapter_thirteen.md)
+- [Chapter XIII — Let Me Show You My Julija](julija/13_chapter_thirteen.md)
 - [Chapter XIV — Remember](julija/14_chapter_fourteen.md)
 - [Chapter XV — Finally – Julija!](julija/15_chapter_fifteen.md)
 - [Chapter XVI — The Contract](julija/16_chapter_sixteen.md)
@@ -37,7 +37,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXV — The Bloodlust Fragments](julija/25_chapter_twenty-five.md)
 -  
 - [The Summer Dream](julija/epilogue.md)
-- [The Resignation, Part One](julija/the_resignation_part_one.md)
+- [The Resignation, Part One (Julija: "You resign? Great. Now let us finish the story.")](julija/the_resignation_part_one.md)
 
 ---
 
