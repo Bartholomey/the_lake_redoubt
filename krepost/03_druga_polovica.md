@@ -60,4 +60,4 @@ Mar je ženska polmoški, čigar moža dolžnost je ta, da z demonstracijo moči
 
 **65**
 
-Ti si človek, ki iz spoštovanja do pravic, lastnine in dostojanstva svojega soplemenjaka zavrneš namige tuje žene, ki so ti izkazovane spričo nekih pritlehnih nagibov in ozračju pogosteje izpostavljenega hitrega jezika, kakor ljubiš samo smelost, skozi katero si je pridobil pridobljeno klanjanje in katere izražanja so sposobni izključno njemu podobni ljudje. Pogledal si proti nebu, okoli nog se ti zvijajoč zadnje moledovanje ženskosti ali narave. Zmečkal si jo. Zavrgl si to. Pogledal si proti Nebu.
+Ti si človek, ki iz spoštovanja do pravic, lastnine in dostojanstva svojega soplemenjaka zavrneš namige tuje žene, ki so ti izkazovane spričo nekih pritlehnih nagibov in ozračju pogosteje izpostavljenega hitrega jezika, kakor ljubiš samo smelost, skozi katero si je pridobil pridobljeno klanjanje in katere izražanja so sposobni izključno njemu podobni ljudje. Pogledal si v nebo, okoli nog se ti zvijajoč zadnje moledovanje ženskosti ali narave. Zmečkal si jo. Zavrgl si to. Pogledal si v Nebo.
