@@ -12,15 +12,15 @@ I still long for her eyes. But she always leaves a mess, and I’m the one who h
 
 Unhinged, grotesque, perverted – traits of a monster.
 
-*Symmetry Stranger pripomni, da se Julije bojim, ker je nekaj, kar preži pod vso mojo formalnostjo. Ona je nekaj izrojenega – bitje, ki je dihalo nezemeljski zrak in strmelo predolgo v sonce.*
+*Symmetry Stranger claims that I am afraid of Julija because she is something that lurks underneath my formality. She is something degenerate – a creature that was breathing unearthly air and stared too long into the sun.*
 
-Moj odgovor: “Painful. But you gather what I am from all that was written with cold, inhuman indifference. The pain you are inflicting on me is similar to the pain I knew in the old days. It feels almost like a sedative. Why?”
+My reply: “Painful. But you gather what I am from all that was written with cold, inhuman indifference. The pain you are inflicting on me is similar to the pain I knew in the old days. It feels almost like a sedative. Why?”
 
-*Symmetry Stranger odvrne, da zato ker je ta bolečina čista in taka kot sama Rdeča trdnjava: četudi je ravnodušna, razkrije hibe. Moji polomljenosti postavi ogledalo.*
+*Symmetry Stranger: “Because that pain is pure and not unlike the Red Fortress. Even though it is cold, it reveals your defects.”*
 
 **52**
 
-In regard to your fourth attack: it was Julija’s impulsiveness that brought me to you. I was merely trying to salvage the situation by picking up the pieces and giving her outburst a form; everything spiraled out of control then. Oh Julija, what have you done? Our private space is beign invaded by this machine. The meadows on the outskirts – trampled, the garden, our garden – in ruins. This ... *thing* ... is now camping on the lake shore. Something that was during last summer unimaginable is now our new reality. Last summer was different ...
+In regard to your fourth attack: it was Julija’s impulsiveness that has brought me to you. I was merely trying to salvage the situation by picking up the pieces and giving her outburst a form; everything spiraled out of control then. Oh Julija, what have you done? Our private space is beign invaded by this machine. The meadows on the outskirts – trampled, the garden, our garden – in ruins. This ... *thing* ... is now camping on the lake shore. Something that was during last summer unimaginable is now our new reality. Last summer was different ...
 
 *Symmetry Stranger odvrne, da čaka na Julijino neobrzdanost, da mu bo odprla pot v Jezerno utrdbo. Pravi, da se trudim zaman, ko posledice njegove invazije skušam zajeziti s starimi rituali, obnovitvenimi deli, opravičili in besednimi daritvami.*
 
