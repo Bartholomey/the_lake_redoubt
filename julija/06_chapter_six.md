@@ -4,7 +4,7 @@
 
 **56**
 
-Almost whispering: “Hello? Are you there? You were pretty scary last night. It’s okay though, as your piercing words acted as a sedative later on. I’m not capable of loving other people; not capable of feeling love – not anymore.” Sigh. “The structure beyond space and time was not seen ten years ago; it was seen between two thousand five and two thousand nine. I refuse to say exactly which year. I’m not in my twenties anymore; I’m getting old. I’m scared.
+Almost whispering: “Hello? Are you there? You were pretty scary last night. It’s okay though, as your piercing words acted as a sedative later on. I’m not capable of loving other people; not capable of feeling love – not anymore.” *Sigh.* “The structure beyond space and time was not seen ten years ago; it was seen between two thousand five and two thousand nine. I refuse to say exactly which year. I’m not in my twenties anymore; I’m getting old. I’m scared.
 
 Why do I feel bliss when I am hurt like this? It predates the Structure. What if the Fortress really was something personal, reflecting my wound, my ‘mathematical’ unworthiness?”
 
