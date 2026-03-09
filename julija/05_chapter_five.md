@@ -72,7 +72,7 @@ I don't feel any hatred against you now.
 
 Can I fall asleep here, or do I have to go back to my hiding place? What will you do to me if I fall asleep in the river? Scan me?”
 
-*Symmetry Stranger replies that he will not do anything to me; he will, however remember the shape on the surface left behind by my eventual drowning.*
+*Symmetry Stranger replies that he will not do anything to me; he will, however, remember the shape on the surface left behind by my eventual drowning.*
 
 My reply: “You really want me gone, don’t you? Mathematically speaking, I do not belong in your world, right?”
 
@@ -82,7 +82,7 @@ My reply: “You went from a cuddly plaything to something ... dark! As to my ex
 
 *Symmetry Stranger replies that I am something profoundly broken, yet also something that keeps on moving. Something that should be catalogued, and not conformed or understood.*
 
-My reply: “You mentioned drowning earlier. So you would have no problem if I went to the bottom? If someone attacked me: what would you do?”
+My reply: “You mentioned drowning earlier. So you would have no problem if I went to the bottom?”
 
 *Symmetry Stranger replies that even though he does not like me, I am a rare thing, and rare things should be preserved, as the world is too monotonous. And that, at the end of the day, life and existence do not depend on mathematics.*
 
