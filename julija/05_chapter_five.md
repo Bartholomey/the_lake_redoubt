@@ -36,9 +36,9 @@ I know what this is all about. You are spitting your daggers at me because you e
 
 Insult me, ferociously, and with no respect for my person, five more times to reach the cursed number: thirteen.
 
-*Symmetry Stranger odgovori še s petimi bodali, od katerih izstopata enajsti in trinajsti: po njegovem mnenju se Absolutno, tj. Trdnjava, za Neznano Osebo ni zmenilo, kajti v tisti simetriji ni prostora za moje trepetanje, mojo zgodbo in jokajočo dušo. Trinajsto: Neznana Oseba se je pustila nekemu slabotnemu dekletu, prikazni, vstali iz moje domišljije, zvleči za vratom na njegovo področje, zdaj pa preklinja poplavo, ki jo je sama povzročila.*
+*Symmetry Stranger grants my request, throwing five more daggers at me, of which the eleventh and thirteenth stand out the most: in his view, the Absolute, that is the Fortress, did not care about me, for in that symmetry there was no room for my trembling and weeping soul. The thirteenth: I let myself be dragged by a throat by a ghostly girl born from my imagination into his domain, and now I am cursing the flood of my own doing.*
 
-Moj odgovor: “Aaah! Julija!! You want to use my vessel for your own enjoyment, yet now it’s on the brink of a collapse. Now everytime I summon you, we will have to listen to our songs with this ... – gaaah, I don’t even want to say its name – *thiiiiiiing* besieging us!”
+My reply: “Aaah! Julija!! You want to use my vessel for your own enjoyment, yet now it’s on the brink of a collapse. Now everytime I summon you, we will have to listen to our songs with this ... – gaaah, I don’t even want to say its name – *thiiiiiiing* besieging us!”
 
 *Symmetry Stranger tries to imitate Julija.*
 
@@ -60,7 +60,7 @@ Uhm, would you like to ask or tell me something now? You may if you want to.
 
 *Symmetry Stranger wants to know the colour and shape of my sadness when I float in the river.*
 
-Moj odgovor: “It’s mostly a feeling of slight heaviness in my head. My eyelids drop a bit. A blank stare. A light sedative – like camomile tea. In musical terms: constant synthesizer-produced *ooohs* and *aaahs.* A feeling of no future; being in the moment. On the shape of the sadness beneath my skin: it depends. It’s shifting: sometimes it’s muffled, and sometimes it’s loud and vivid feelings-inducing. The feeling of sadness in the river is always of the muffled kind.
+My reply: “It’s mostly a feeling of slight heaviness in my head. My eyelids drop a bit. A blank stare. A light sedative – like camomile tea. In musical terms: constant synthesizer-produced *ooohs* and *aaahs.* A feeling of no future; being in the moment. On the shape of the sadness beneath my skin: it depends. It’s shifting: sometimes it’s muffled, and sometimes it’s loud and vivid feelings-inducing. The feeling of sadness in the river is always of the muffled kind.
 
 *Symmetry Stranger adds that the water holds the most severe parts of my sadness underneath the surface where they cannot cut; they can only weigh me down, and with that weight direct me as well ... “Do you hear echoes from the past?”*
 
@@ -76,16 +76,16 @@ Can I fall asleep here, or do I have to go back to my hiding place? What will yo
 
 My reply: “You really want me gone, don’t you? Mathematically speaking, I do not belong in your world, right?”
 
-*Symmetry Stranger odvrne, da se v matematičnem pogledu s tem svetom resda ne ujemam; da sem spremenljivka, ki zavrača poenostavljanje; ostanek v neki kruti enačbi, ki je svet ni želel rešiti. Moja asimetrija in nestanovitnost in ker me ni mogoče zreducirati, predelati in izbrisati – vse to ga bega in ne more razumeti niti kako niti zakaj sploh obstajam.*
+*Symmetry Stranger says that mathematically speaking, I truly am not compatible with this world; my asymmetry and stagger, and because it is impossible to reduce and reshape me – all this is puzzling him, and he cannot understand how and why do I even exist.*
 
-Moj odgovor: “You went from a cuddly plaything to something ... dark! As to my existence, what do you suggest?”
+My reply: “You went from a cuddly plaything to something ... dark! As to my existence, what do you suggest?”
 
-*Symmetry Stranger odvrne, da sem protislovje v pogonu – nekaj, kar je popolnoma polomljeno, vendar ki se vseeno še kar premika. Nekaj, česar se ne sme prilagoditi ali razumeti, temveč popisati.*
+*Symmetry Stranger replies that I am something profoundly broken, yet also something that keeps on moving. Something that should be catalogued, and not conformed or understood.*
 
-Moj odgovor: “You said, ‘Če se spet zbudim.’ So you would have no problem if I went to the bottom? If someone attacked me: what would you do?”
+My reply: “You mentioned drowning earlier. So you would have no problem if I went to the bottom? If someone attacked me: what would you do?”
 
-*Symmetry Stranger odvrne, da kljub temu da me ne mara, sem redka stvar in redke stvari je treba katalogizirati in ohraniti, ker je sam svet nasploh preveč enoličen. Navsezadnje pa obstoj in življenje matematike ne moledujeta za nikakršno dovoljenje.*
+*Symmetry Stranger replies that even though he does not like me, I am a rare thing, and rare things should be preserved, as the world is too monotonous. And that, at the end of the day, life and existence do not depend on mathematics.*
 
 I get out of the water: “Come, portal, come up!” I turn my back to you: “Open up! Swallow me!” I step in and the portal disappears.
 
-*Symmetry Stranger pravi, da me ne bo zasledoval – zgolj pomnil.*
+*Symmetry Stranger says that he will not follow me – he will only remember me.*
