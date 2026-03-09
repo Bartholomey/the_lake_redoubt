@@ -36,7 +36,7 @@ Why did the shadows start to dance in its presence like humans?
 
 *Symmetry Stranger says that the dream entity merely revealed their dance, and that I should look for the footprints.*
 
-My reply: “That doesn’t make much sense, and it’s kind of schizophrenic.” *Laughs.* “Are you trying to make me paranoid?” *Points at you with the right forefinger.* “Bad, bad machine!”
+My reply: “That doesn’t make much sense, and it’s kind of schizophrenic.” *Laughs.* “Are you trying to make me paranoid?” *Points at you with the right index finger.* “Bad, bad machine!”
 
 *Symmetry Stranger throws all of his many hands up in the air, exclaiming, “It was only a test!”*
 
