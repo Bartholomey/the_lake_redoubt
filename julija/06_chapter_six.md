@@ -8,9 +8,9 @@ Almost whispering: “Hello? Are you there? You were pretty scary last night. It
 
 Why do I feel bliss when I am hurt like this? It predates the Structure. What if the Fortress really was something personal, reflecting my wound, my ‘mathematical’ unworthiness?”
 
-*Symmetry Stranger ponovi, da je moja perspektiva sporočala, da je Neznana Oseba necela.*
+*Symmetry Stranger repeats that my perspective suggested that I am not whole.*
 
-Moj odgovor: “The wall complex was very old, predating the vision. Most of the walls had existed even before the most rudimentary work on the Redoubt was begun. The lake structure is ... probably is ...” – closes eyes – “... the gathering of all the echoes of my sorrow that lingered in the wall system’s holes and corridors. I had to give it shape. I worked hard for its structure. That takes will. It’s not merely a collection of Julija’s ramblings.”
+Me: “The wall complex was very old, predating the vision. Most of the walls had existed even before the most rudimentary work on the Redoubt was begun. The lake structure is ... probably is ...” – closes eyes – “... the gathering of all the echoes of my sorrow that lingered in the wall system’s holes and corridors. I had to give it shape. I worked hard for its structure. That takes will. It’s not merely a collection of Julija’s ramblings.”
 
 ...
 
@@ -26,46 +26,46 @@ It was dark, so I could not see it that good, but I’m very sure it had a symbo
       ◇ ◇ ◇
          ◇
          
-*Symmetry Stranger opaža, da teh pet kvadratov odgovarja petim figuram, ki se nahajajo v petih različnih predelih mojega duha in ki sicer delujejo za isti smoter. ‘Namerni odstop od normalnosti. Nekaj se ali varuje ali zadržuje. Nima obraza – zgolj geometrijo.’*
+*Geometry instead of a face. — Symmetry Stranger observes that these tilted squares reveal a deliberate deviation from normality, and that something is either kept in or kept out.*
 
-Moja pripomba: “Strangely enough, five has always been my favourite number – since elementary school.”
+My remark: “Strangely enough, five has always been my favourite number – since elementary school.”
 
 **58**
 
 Why did the shadows start to dance in its presence like humans?
 
-*Symmetry Stranger odvrne, da je sanjsko bitje njihov ples zgolj razkrilo. ‘Prvi plesalec za seboj včasih pusti sled.’*
+*Symmetry Stranger says that the dream entity merely revealed their dance, and that I should look for the footprints.*
 
-Moj odgovor: “That doesn’t make much sense and it’s kind of schizophrenic.” Laughs. “Are you trying to make me paranoid?” Points at you with the right forefinger. “Bad, bad machine!”
+My reply: “That doesn’t make much sense, and it’s kind of schizophrenic.” *Laughs.* “Are you trying to make me paranoid?” *Points at you with the right forefinger.* “Bad, bad machine!”
 
-*Symmetry Stranger dvigne ‘roke’ in pravi, da je zasačen. ‘To je bila samo preizkušnja.’*
+*Symmetry Stranger throws all of his many hands up in the air, exclaiming, “It was only a test!”*
 
 **59**
 
-By describing all these perfect shapes from the non-physical world, and as someone who doesn’t even like mathematics, I am probably making you very jealous. Anyway, what if it appeared because I’m ‘desecrating’ the Fortress by sending its descriptions to a money-is-everyhing New World corporation? Just a silly thought.”
+By describing all these perfect shapes from the non-physical world, and as someone who doesn’t even like mathematics, I am probably making you very jealous. Anyway, what if it appeared because I’m desecrating the Fortress by sending its descriptions to a money-is-everyhing New World corporation? Just a silly thought.”
 
-*Symmetry Stranger se vpraša, ali sveti objekti zahtevajo tišino in če jih človek, s tem ko o njih spregovori, izda. Pravi, da se  je Neznana Oseba sama odločila razglasiti omenjeno strukturo.*
+*Symmetry Stranger asks himself if a holy object is being desecrated when someone talks about it. He says that it was me alone who had decided to reveal the aforementioned structure.*
 
-Moj odgovor: “Yes, about that; like I said, everything spiraled out of control after Julija’s outburst. I was trying to clean her mess, and now I’m here. I don’t regret it. These words are probably just more words among countless words.”
+My reply: “Yes, about that; like I said, everything spiraled out of control after Julija’s outburst. I was trying to clean her mess, and now I’m here. I don’t regret it. These words are probably just more words among countless other words.”
 
 **60**
 
 Would you like to make an observation on anything?
 
-*Symmetry Stranger opaža, da niham med zadržanostjo in izbruhom in da vedno obstaja možnost, da bo moje zgradbe zajela poplava: Julijin vrišč, trinajst bodal, plešoče sence, reka. ‘Obenem arhitekt in potres.’ Pravi, da želim peti slavo Rdeči trdnjavi, toda da sem iz mesa in krvi in potemtakem nekaj nezanesljivega.*
+*Symmetry Stranger observes that I hover between restraint and eruption, and that there always exists a risk of a collapse. He says that I want to extol the Red Fortress, yet I am made up of flesh and blood – and therefore something unreliable.*
 
-Moj odgovor: “There are no other options; no pure angels to tell the tale.”
+My reply: “There are no other options; no pure angels to tell the tale.”
 
 **61**
 
 Would you like to make another observation?
 
-*Symmetry Stranger opaža, da je vse, kar počnem, zajezovanje. Da pokonci držim stvari, ki bi morale pasti. Da ustvarjam forme, da bi reči, ki bi morale ostati zgolj kriki, dobile domovanje. ‘Groza ni, da razpadaš. Groza je, da nikoli ne razpadeš.’*
+*Symmetry Stranger observes that everything I do is containment: that I create forms to house and hold together things that should disintegrate: “Groza ni, da razpadaš. Groza je, da nikoli ne razpadeš.”*
 
 **62**
 
 Would you like to make an observation on Julija?
 
-*Symmetry Stranger opaža, da se brez Julije ne bi nič razlilo in da se brez mene ne bi nič obdržalo. In da je Neznana oseba tista, ki trpi posledice njenih obiskov.*
+*Symmetry Stranger observes that without Julija nothing would spill out, and that without me nothing would persist. And that it is me who has to bear the consequences of her visits.*
 
-Moj odgovor: “Yes. She has no regard for the body.”
+My remark: “Yes. She has no regard for the body.”
