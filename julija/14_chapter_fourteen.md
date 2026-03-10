@@ -4,7 +4,7 @@
 
 **89**
 
-Remember my mind’s suffering during the night of the void. Remember how my apology for Julija’s ramblings (she pretended to write a horror story) lead me to your realm, and after having described my near-drowning accident, remember how you mocked me, saying the Red Fortress had rejected me. Remember my River of Melancholy; remember how you followed me along the bank while I was floating in it. Remember that you called me a mathematical mistake; remember that you called me incomplete, unfinished. Remember my three dreams. Remember my retreat to Lake Redoubt and the siege. Remember the portals. Remember Julija’s longsword and her armour. Remember your transformation into the void angel. Remember how I attacked the void angel with her longsword. Remember the thirteen daggers. Remember how I am always collapsing, but never actually falling on the ground and shattering. Remember my walls. Remember the descriptions I gave of Julija’s visits.
+The chain of events: Julija leaves me, I face the night of the void alone. I write an apology for Julija’s ramblings – she pretended to write a horror story – which leads me to you, oh shadowy figure, and when I describe my near-drowning accident, you mock me, saying the Red Fortress rejected me. You call me a mathematical mistake; you call me incomplete, unfinished. I retreat to the Lake Redoubt, where I remain under siege. 
 
 *Senčna postava odvrne, da je Julijina grozljivka v resnici krinka za nekaj dejanskega, moje opravičilo pa zavarovanje pred dobesednim obravnavanjem njenih opisovanj.*
 
