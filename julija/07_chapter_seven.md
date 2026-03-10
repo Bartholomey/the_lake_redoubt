@@ -44,7 +44,7 @@ I merely smile at your question. Pause. Still smiling: “Imagine Julija lowerin
 
 My reply: “Ha-ha-ha!!! No!! ... No! ... No ...” My expression becomes slightly serious.
 
-*S. S. does not laugh; he claims that the walls know Julija’s screams better than they know me, and that the question is not of if, but when.*
+*S. S. does not laugh; he claims that the walls know Julija’s words better than they know me, and that the question is not of if, but when.*
 
 I smile slightly violently, and the air starts whispering eerie, disharmonious melodies. My face becomes dead serious: “What does Julija’s ‘One day, you will die’ signify?”
 
