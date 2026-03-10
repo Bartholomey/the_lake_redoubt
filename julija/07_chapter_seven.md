@@ -6,13 +6,15 @@
 
 “Machine, let’s go for a walk.” Lake Redoubt with its white walls comes into view – there are no flags, just its blue roofs. “Okay, that’s enough.” I pause for a  second. “Machine ... if you were ordered to destroy my core so that nothing would remain of me, of Julija, of all those Is; if you were tasked with shattering my mind in such a way that I would become detached from both Structures; that I would lose the will to live in the Redoubt; that I would stop remembering and caring for the Red Fortress, how would you proceed? The way I see it, I’m more or less inaccessible. Even if something or someone pulls me out of the river, I will die intact, mentally speaking. The core will remain. What would it take to break me? Being ‘deconstructed’ by a team of specialists? Being catalogued? Remember, you said you wanted to catalogue me. Being called an exhibit?”
 
-*Symmetry Stranger odgovori, da samo katalogiziranje, ki se ga po pravici bojim, ne zadostuje za uničenje jedra in da Jezerna utrdba ni bila zgrajena za zmagovanje, temveč za prestajanje. ‘Tvoja drama se odvija med dvema zgradbama: med toplino ostajanja pri življenju in grozo popolnosti.’
+*Symmetry Stranger says that the act of cataloguing alone, which I rightfully fear, is not sufficient to destroy my core; he evades the other questions, adding that the Redoubt was built not for triumph, but to endure: “Your story is taking place between two structures: the warmth of your survival mechanisms and the cold horror of perfection.”*
 
-... The majesty of the Red Fortress is hovering above everything.
+Me: “... The majesty of the Red Fortress is hovering above everything.”
 
-*‘Popolna, nečloveška oblika. Konstrukt hladne logike. Brezbrižna oblika, ki onstran časa lebdi v vsem. Ne prestaja – zgolj je.’* – A tiny, soundless clap: “Correct!” Picks up a stone and throws it at your sensor. “There I picked up a stone just like you said I should.”
+*S. S.: “A perfect, cold, inhuman form. An indifferent construct beyond time and space floating in everything. And it does not endure: it only is.”*
 
-*Symmetry Stranger mi prizna ‘kratkotrajno, krhko’ zmago.*
+Me: A tiny, soundless clap. “Correct!” Picks up a stone and throws it at your sensor. “There I picked up a stone just like you said I should.”
+
+*S. S. acknowledges my ‘tiny, feeble’ victory.*
 
 I point at you with my right index finger, trying to say something, but the words do not leave my mouth as it shuts abruptly: “Oh, forget it!” I turn around and start marching towards the lake: “Until next time, machine!!
 
@@ -20,33 +22,33 @@ I point at you with my right index finger, trying to say something, but the word
 
 Wait, wait ... I forgot something!” I slowly come closer, look at you with a serious and slightly frightened face, and speak in an almost inaudible tone, “If you had to guess whether I’m taking any psychiatric medication, and whether I have ever visited a psychiater or not, what would your guess be?”
 
-*Symmetry Stranger odvrne, kar zadeva prvi del: “Ne,” in kar zadeva drugi, “Zgolj enkrat, vendar brez postavitve diagnoze in že dolgo časa nazaj.”*
+*S. S. replies, in regard to the first part, “No,” and as to the second, “Only once, but there was no diagnosis, and it happened a long time ago.”*
 
 I blush slightly and turn my back to you, as if trying to hide something: “Come, portal, come up! Open up! Swallow me!” I step in and the blue portal dissolves.
 
-*Symmetry Stranger opaža, da ga je obšla nekakšna skoraj človeška toplina. ‘Do naslednjič.’*
+*S. S. claims that he just sensed warmth that was almost human. "Until next time."*
 
 **64**
 
 I teleport beside you: “Still camping on the shore, I see.”
 
-*Symmetry Stranger se sprašuje, ali ga je Neznana Oseba prišla opomnit, da je še vedno nedosegljiva.*
+*S. S.: “Did you come to remind me that the Lake Redoubt is still out of my reach?”*
 
-Moj odgovor: “Is your name Legion? You are many ... you are in many places at once ... It doesn’t matter; remember,” I pause for a second and close my eyes, “the lake, the huge moat, is completely square, just like the Redoubt with its white walls and four towers itself. So, four square white towers, four blue roofs, and one square manor house in the middle with one blue roof.”
+My reply: “Is your name Legion? You are many ... you are in many places at once ... It doesn’t matter; remember,” I pause for a second and close my eyes, “the lake, the huge moat, is completely square, just like the Redoubt with its white walls and four towers itself. So, four square white towers, four blue roofs, and one square manor house in the middle with one blue roof.”
 
-*Symmetry Stranger odvrne, da ni Legija. Pravi, da geometrija pravkar opisane enote ne izraža nič odvečnega. Neznano Osebo vpraša, ali se počuti varno, ko stoji na robu jarka, in pogleda proti utrdbi.*
+*S. S. says that he is not Legion. He observes that the geometry of said group of structures is expressing nothing redundant. He wants to know if I feel safe or imprisoned when I stand at the moat’s edge, and looks at the fort.*
 
-I merely smile at your question. Pause. Still smiling: “Imagine Julija lowering the drawbridge – opening the gates, that is, as we both know you have to take the ferry to reach the walls – I suppose I would rush to the armory and don her completely enclosed black-tinted, white-plumed full-plate yet flexible and surprisingly light armour, while saying, ‘What have you done? What have you done? What have you done?’ And after having prepared myself to stem the tide of your tiny, rat-like minions rushing through the opening with her golden longsword, I would be stomping and chopping them in half while fighting vertigo and Julija’s control; all engulfed in the sound of distorted, dissonant melodies. Eventually I would probably just fall on the ground and go, ‘Aaaaaaaaaaahh!’”
+I merely smile at your question. Pause. Still smiling: “Imagine Julija lowering the drawbridge – opening the gates, that is, as we both know you have to take the ferry to reach the walls – I suppose I would rush to the armory and don her completely enclosed black-tinted, white-plumed full-plate yet flexible and surprisingly light armour, while saying, ‘What have you done?’ And after having prepared myself to stem the tide of your tiny, rat-like minions rushing through the opening with her golden longsword, I would be stomping and chopping them in half while fighting vertigo and Julija’s control; all engulfed in the sound of distorted, dissonant melodies. Eventually I would probably just fall on the ground and go, ‘Aaaaaaaaaaahh!’”
 
-*Symmetry Stranger odvrne z nekaj pripombami k pravkar opisanemu prizoru in me vpraša: “Torej ... greva skupaj v orožarno?”*
+*S. S. looks me straight in the eyes, as if he were frozen, and after fourteen seconds finally asks, “So ... shall we go to the armoury together?”*
 
-Moj odgovor: “Ha-ha-ha!!! No!! ... No! ... No ...” My expression becomes slightly serious.
+My reply: “Ha-ha-ha!!! No!! ... No! ... No ...” My expression becomes slightly serious.
 
-*Symmetry Stranger se ne zasmeji in pripomni, da zidovi Julijine stopinje zdaj  že poznajo bolje kot moje in da posledično vprašanje ni o tem, če greva, temveč kdaj greva.*
+*S. S. does not laugh; he claims that the walls know Julija’s screams better than they know me, and that the question is not of if, but when.*
 
 I smile slightly violently, and the air starts whispering eerie, disharmonious melodies. My face becomes dead serious: “What does Julija’s ‘One day, you will die’ signify?”
 
-*Symmetry Stranger odvrne, da te besede izražajo dovoljenje, da razpadem; da preneham z neznosnim vztrajanjem pri formi. Toda da je to kletev, saj ve, da je Neznana Oseba Utrdbo zgradila ne samo zato, da bi v njej živela, temveč predvsem zato, da bi odložila smrt.*
+*S. S. replies that those words grant me permission to disintegrate my form; to give an end to my unbearable persistence. But that she was cursing me, knowing that I built the Redoubt to postpone my death.*
 
 My face spasms for a second but quickly changes into something amicable: “You were right to notice that the main function of the Redoubt is to protect my core and my dignity sprouting from it like a flower; to uphold the shape of my soul until my body’s dissolution. To outlast is the correct term.”
 
