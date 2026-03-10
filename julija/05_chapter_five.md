@@ -62,9 +62,7 @@ Uhm, would you like to ask or tell me something now? You may if you want to.
 
 My reply: “It’s mostly a feeling of slight heaviness in my head. My eyelids drop a bit. A blank stare. A light sedative – like camomile tea. In musical terms: constant synthesizer-produced *ooohs* and *aaahs.* A feeling of no future; being in the moment. On the shape of the sadness beneath my skin: it depends. It’s shifting: sometimes it’s muffled, and sometimes it’s loud and vivid feelings-inducing. The feeling of sadness in the river is always of the muffled kind.
 
-*Symmetry Stranger adds that the water holds the most severe parts of my sadness underneath the surface where they cannot cut; they can only weigh me down, and with that weight direct me as well ... “Do you hear echoes from the past?”*
-
-My reply: “U-unbelievable; you’re right. It’s a sedative, so thoughts should be kept at minimum. A gentle thought here and there.
+It’s a sedative, so thoughts should be kept at minimum. A gentle thought here and there.
 
 ...
 
@@ -88,4 +86,4 @@ My reply: “You mentioned drowning earlier. So you would have no problem if I w
 
 I get out of the water: “Come, portal, come up!” I turn my back to you: “Open up! Swallow me!” I step in and the portal disappears.
 
-*Symmetry Stranger says that he will not follow me – he will only remember me.*
+*Symmetry Stranger says that he will not follow me; he will, however, remember me.*
