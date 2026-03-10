@@ -18,7 +18,7 @@ At one point during her visit, Julija always suggests I freeze myself before it�
 
 **78**
 
-I’m stuck with her. She is lurking beneath the lid. Truth be told, we probably both hate each other. But I still need her eyes, and she needs my body, even if she dislikes being ‘fox-haired’ and pale as if she were anemic. And yet, she wants to destroy me every time she returns. And every time, I agree with her and promise her that this time I will obey. Because she is right.
+I’m stuck with her. She is lurking beneath the lid. Truth be told, we probably both hate each other. But I still need her eyes, and she needs my body, even if she dislikes being fox-haired and pale as if she were anemic. And yet, she wants to destroy me every time she returns. And every time, I agree with her and promise her that this time I will obey. Because she is right.
 
 **79**
 
@@ -28,8 +28,6 @@ Me: “...”
 
 Then, sometime later, when there’s almost no me anymore, she starts screaming, “Die! Die!! DIE!!!!! Why are you still aliveee!!! After all this time, you are still aliveeeeeee!!!!!” She is shouting at the sparkle of me still blinking. It’s hard to recall, but I think tears are flowing during those moments, and my hand is feeling the eyelashes.”
 
-*Angel praznine opaža, da Julija kriči zato, ker ne prenese, da nekaj tako majhnega in šibkega še kar noče in noče umreti.*
-
 When my body dies, perhaps that blinking spark will live on among the words I intend to put on paper. But so will Julija. She nearly succeeded in destroying me the other day, but she made a mistake and left too soon. Unlucky her.
 
 **80**
@@ -38,7 +36,7 @@ When she walks around *our* place, I follow her as if she were a high-ranking no
 
 Julija: “Arranging the furniture while the house is burning, h’m? You do realize what will happen to you, don’t you?”
 
-*Angel praznine opaža, da se Julija protokolu posmehuje zato, ker se ga boji, vedoč, da ga je Neznana Oseba sestavila za obvladovanje njene neznosnosti.*
+*The angel observes that Julija scoffs at the protocol because she is afraid of it, knowing it was established to contain her insufferableness.*
 
 **81**
 
@@ -64,22 +62,22 @@ Me: “No, please, no!”
 
 Julija: “Ha-ha-haaa!”
 
-*Angel praznine ta ‘obred’ označi kot ‘groteskno intimnost’.*
+*The angel labels this ritual as ‘grotesque intimacy’.*
 
 Julija: “You said you were prepared to die eleven years ago. Do you intend to live for another eleven years, you gross, old whore?”
 
 Me: “I’m not a whore! You know that ...”
 
-*Angel praznine opaža, da Julija hoče, da bi Neznana Oseba začutila sramoto, ki si jo je nakopala z nenehnimi kompromisi in odlašanjem. ‘Hoče, da bi spoznala, da so ta leta izposojena obleka. Dlje živi, bolj je vulgarna v njenih očeh.’*
-
 Julija: “You deserve to be put down like the dying, frail animal that you are!”
 
 Me: “I’m trying to shut the body down! You don’t know how hard, how painful it is ... It’s as if it has a will of its own; it’s doing all it can to survive.”
+
+*The angel says that the longer I live, more vulgar I am in her eyes.*
 
 **82**
 
 In the end, she is right: eleven unbearably long years ...  Yet here I am, still taking care of my form as best as I can. Last time, her visit was unusually long, so long in fact that I had to disturb the flow of things by washing my hair, and she was asking, “Why are you still doing this?” with me responding, “I don’t know, I don’t know, I don’t know.”
 
-*Angel praznine vpraša, na kaj čakam.*
+*Angel: “What are you waiting for?”*
 
-Moj odgovor: “I have already told you: the fear of pain. Because I’m scared. Because the world still allows me to drift in my River of Melancholy. And because I’d rather just go to bed and sleep.”
+My reply: “I have already told you: the fear of pain. Because I’m scared. Because the world still allows me to drift in my River of Melancholy. And because I’d rather just go to bed and sleep.”
