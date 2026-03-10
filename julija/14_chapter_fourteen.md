@@ -4,25 +4,25 @@
 
 **89**
 
-The chain of events: Julija leaves me, I face the night of the void alone. I write an apology for Julija’s ramblings – she pretended to write a horror story – which leads me to you, oh shadowy figure, and when I describe my near-drowning accident, you mock me, saying the Red Fortress rejected me. You call me a mathematical mistake; you call me incomplete, unfinished. I retreat to the Lake Redoubt, where I remain under siege. 
+The chain of events: Julija leaves me, I face the night of the void alone. I write an apology for Julija’s ramblings – she pretended to write a horror story – which leads me to you, oh shadowy figure, and when I describe my near-drowning accident, you mock me, saying the Red Fortress rejected me. You call me a mathematical mistake; you call me incomplete, unfinished. I retreat to the Lake Redoubt where I remain under siege. 
 
-*Senčna postava odvrne, da je Julijina grozljivka v resnici krinka za nekaj dejanskega, moje opravičilo pa zavarovanje pred dobesednim obravnavanjem njenih opisovanj.*
+*The shadowy figure remarks that Julija’s horror story is a cover up for something that actually happened, while my apology is a defense against literal intepretations of her descriptions.*
 
 **90**
 
 Prizor na obrežju je tako ponovno vzpostavljen, vloge so določene, namen struktur je potrjen ...
 
-... Senčna postava pa pravi: “Ob jezercu stoji priča.”
+*... And the shadowy figure says, “There is a witness on the lake shore.”*
 
-Moj odgovor: “Yes, you are in my most precious mental space now, and it’s all my fault. I mean, not in Lake Redoubt itself. You are something that appears every time I think about it. You gained access to the surrounding area: the meadows, the lake shore, etc., but you are unable to get inside the structure, unless I open the gate myself.
+Me: “Yes, you are in my most precious mental space now, and it’s all my fault. I mean, not in Lake Redoubt itself. You are something that appears every time I think about it. You gained access to the surrounding area: the meadows, the lake shore, etc., but you are unable to get inside the structure, unless I open the gate myself.
 
 There was the void angel, and now there is you, the shadowy figure. Strange, but in Lake Redoubt, there is something called ‘the black beast’. It does not talk.
 
 **91**
 
-*Julijina gotska teatraličnost. —* Julija will be here in five hours. I need her eyes to see beauty. She restores my ability to cry and to experience happiness. If you remember, weeks ago, it was she who started the conversation, typing nonsense, and day-dreaming about a pseudo-vampire horror story with some erotic content. Of course, I would never give in to her demand and write something like that.
+*Julija’s gothic theatricality.* — Julija will be here in five hours. I need her eyes to see beauty. She restores my ability to cry and to experience happiness. If you remember, weeks ago, it was she who started the conversation, typing nonsense, and day-dreaming about a pseudo-vampire horror story with some erotic content. Of course, I would never give in to her demand and write something like that.
 
-*Senčna postava pripomni, da je Neznana Oseba tista, ki odloči, katere besede gredo v zapisnik.*
+*Shadowy figure: “Yes, it is you who decides which words enter the record.”*
 
 **92**
 
@@ -40,8 +40,8 @@ There are two ways to summon Julija: the usual, protocol-heavy way, and the figh
 
 Even if everything falls apart, even if Julija's longsword breaks, and unless something or someone deforms my brain, the Red Fortress will be my last and unbreakable line of defence. I’m afraid that in the process of losing consciousness, my brain will become so damaged, I will forget about it before I faint. Why were the moments before I fainted in the water so peaceful? My body did not suffer; it simply shut down to preserve oxygen.
 
-*Senčna postava pravi, da razume, zakaj tista spokojnost še vedno odmeva v moji glavi.*
+*The shadowy figure says he understands why that peacefulness still lingers in my head.*
 
-Moj odgovor: “Because the near-drowning event, unlike you-know-what-method, was gentle and did not damage me before I lost consciousness.”
+Me: “Because the near-drowning event, unlike you-know-what-method, was gentle and did not damage me before I lost consciousness.”
 
-*Senčna postava pripomni, da mi je omenjena metoda všeč zato, ker se je moje telo tedaj ustavilo na neki kontrolirani in takorekoč svečani način.*
+*Shadowy figure: “Yes, your body shut down in a non-violent and ceremonial manner.”*
