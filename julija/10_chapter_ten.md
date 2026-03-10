@@ -1,4 +1,4 @@
-# Kdaj bo Neznani Osebi odbila zadnja ura?
+# Kdaj mi bo odbila zadnja ura?
 
 <br>
 
