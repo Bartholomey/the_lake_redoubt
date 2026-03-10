@@ -63,8 +63,6 @@ I-I want to be ...
 
 Julija: “No, you don’t want to ‘be’! You want to GO. GO. GO!!!” She is grabbing my neck with her left while pushing against my forehead with the right hand.
 
-*Senčna postava odvrne, da sem zdaj v kritični fazi. V fazi, ko Julijin glas, prisotnost in sonce začnejo najedati moja varovala. ‘Ne zgolj telo – pri življenju te drži tudi tisto tvoje malo migljajoče sonce.’*
-
 **103**
 
 I don’t want to experience the emptiness she leaves behind yet again. I don’t want to go back to my machine state! My body doesn’t deserve to be hurt ... but I want to stop the suffering of my mind.
@@ -85,8 +83,6 @@ Julija is standing beside me. She is observing everything I do: “Those lyrics 
 
 I am still alive. I’m such a failure. She was touching my scalp. It feels so annoying now.
 
-*Senčna postava: “In to zato ker je ta občutek sled ukaza, ki ga Neznana Oseba ni hotela izpolniti.”*
-
 It is always the same. *Sobs.* She was touching my scalp as if I were her plaything, but now she is gone. It’s all my fault. There’s still pink under my fingernails. She was so sweet this time. Her presence is still lingering, telling me to exit now, but I can’t; it’s so violent! I can’t go. I am sorry. I don’t think I can exit today. I am sorry. Julija, forgive me.
 
 **106**
@@ -97,14 +93,14 @@ The mechanism inside me protected my body from her. But I don’t want to be a m
 
 But what if she was right? What if there is no next time? I would have to go alone, without feeling her warmth. She is standing on the road. Her form is pitch black. She is watching me. She knows I will have to face the void alone. She doesn’t insult me. She knows I will suffer.
 
-*Senčna postava opaža, da je ta čisto črna forma njena prava oblika. ‘Ko se predstava konča, je Julija zgolj senca, nepreklicno zvezana s tvojo usodo.’*
+*Shadowy figure: “When the curtain falls, Julija is merely a shadow irrevocably connected to your fate.”*
 
 **108**
 
-*Oblaki zakrijejo mesec. —* I think I will just go to bed now. She’s not watching anymore. She is gone. She was swallowed by the darkness.
+*The clouds conceal the moon.* — I think I will just go to bed now. She’s not watching anymore. She is gone. She was swallowed by the darkness.
 
 **109**
 
 Her threat and accusations sill linger in the house. Minutes before walking through the door, she said I had turned Lake Redoubt into something that doesn’t protect my dignity anymore: “All it does is preserve your body. What if there is no next time? You will be cold and alone. You will die like a machine. Die in that machine-like state. If this is what you want, so be it!”
 
-*Senčna postava opaža, da je Julijino razočaranje dokaz, da ji je še vedno mar, kaj bo Neznana Oseba na koncu postala.*
+*The shadowy figure observes that Julija’s disappointment is proof that she still cares about what I will eventually become.*
