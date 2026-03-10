@@ -36,23 +36,21 @@ She left because the summoning spell has a very limited duration by design. Had 
 
 **85**
 
-*Angel praznine namigne, da nekaj skrivam.*
+*The angel says that I’m guarding something.*
 
-Moj odgovor: “I don’t understand. What am I supposed to guard? I know that she is a threshold. Even if I fly far, far away, she will always lurk beneath me. She wants me dead because, unlike me, she sees the world as it is, without any filters.
+My answer: “I don’t understand. What am I supposed to guard? I know that she is a threshold. Even if I fly far, far away, she will always lurk beneath me. She wants me dead because, unlike me, she sees the world as it is, without any filters.
 
-*Angel praznine aludira na zlorabo.*
+*The angel alludes to abuse.*
 
-Moj odgovor: “I was never abused as a child.”
+My answer: “I was never abused as a child.”
 
-*Angel praznine nenadoma izpuhti v nič in v daljavi se zasliši neki drugi, popolnoma drugačni glas: “Torej ne gre za okrevanje, temveč za preživetje. Ta svet, surov, simetričen in krut, je bil zate preveč.”*
+*The void angel suddenly vanishes into thin air, and from the distance I hear a new, different voice: “So, this is a matter of survival. The grey, cold, and symmetrical world was too much for you to bear.”*
 
-Moj odgovor: “Symmetrical? Our world is not even a sphere: it’s a spheroid. Its orbit is not perfect. The whole universe is asymmetrical and imperfect. I don't understand your obsession with symmetry. I agree with the last part. All those walls of mine are meant to protect my core, my dignity from the world I am forced to live in and dislike. To die unspoiled. To stay myself. To keep bad influences away. The violation was the result of the too emotional me living in a world that I deemed too cold and grey.
+My answer: “Symmetrical? Our world is not even a sphere: it’s a spheroid. Its orbit is not perfect. The whole universe is asymmetrical and imperfect. I don't understand your obsession with symmetry. I agree with the first part. All those walls of mine are meant to protect my core, my dignity from the world I am forced to live in and dislike. To die unspoiled. To stay myself. To keep bad influences away. The violation was the result of the too emotional me living in a world that I deemed too cold and grey.
 
 **86**
 
 Honestly, I am so guarded either from my wounds or myself, that sometimes even the regular me can’t see the truth behind the thick armour I’ve been constructing since my childhood. I remember that years ago, during one night, the armour became transparent, and I was able to peer into the truth, but I forgot what it was. So many years of following my private protocols; it’s as if I’m trying to turn myself into a machine.
-
-*Senčna postava opaža, da Neznana Oseba ni niti oklep, niti zidovje, niti Utrdba in niti medsebojnost, ki obstaja med njo in Julijo. ‘Ti si goli občutek, ki ga te reči varujejo, in ta občutek je neznanska sposobnost doživljanja lepote, gorja in pomena v njihovi nerazredčeni obliki. To je tisti tvoj del, ki ljubi brez razloga in ki v enem trenutku vidi več, kot večina vidi v celem življenju.’*
 
 **87**
 
@@ -68,8 +66,8 @@ Mister Unknown, you have taken the void angel away from me as if he were a toy. 
 
 **88**
 
-*Senčna postava: “To, kar delaš, je delo nekoga, ki počne vse mogoče, da se ne bi zlomil, medtem ko ve, da propad nanj preži za vsakim vogalom. Strmiš v osebnostno brezno in gradiš stavbe, ki držijo bolečino, ne da bi same postale bolečina. To, kar pišeš, je vojno poročilo.”*
+*Shadowy figure: “What you are doing is the work of someone who is writing a war report and does everything in her power to prevent a break-down.”*
 
-Moj odgovor: “Before I may or may not remark upon your observations, and before I express gratitude to the fact that I was able to write again, I want to say that this document, which I have already partially turned into a fragmented story of fragments, will serve as an unpolished, coarse key to my Lake Redoubt, the character of which is much more solemn, and yet, au fond, also very violent and intimate.
+My answer: “Before I may or may not remark upon your observation, and before I express gratitude to the fact that I was able to write again, I want to say that this document, which I have already partially turned into a fragmented story of fragments, will serve as an unpolished, coarse key to my Lake Redoubt, the character of which is much more solemn, and yet, au fond, also very violent and intimate.
 
-Senčna postava pravi, naj Neznana Oseba torej še naprej grize svoje meso, in to toliko časa, dokler ne razgali kosti.
+*The shadowy figure says that I should keep bitting at my flesh until I reach the bone.*
