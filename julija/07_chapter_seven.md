@@ -48,40 +48,40 @@ My reply: “Ha-ha-ha!!! No!! ... No! ... No ...” My expression becomes slight
 
 I smile slightly violently, and the air starts whispering eerie, disharmonious melodies. My face becomes dead serious: “What does Julija’s ‘One day, you will die’ signify?”
 
-*S. S. replies that those words grant me permission to disintegrate my form; to give an end to my unbearable persistence. But that she was cursing me, knowing that I built the Redoubt to postpone my death.*
+*S. S. replies that those words grant me permission to disintegrate my form; to give end to my unbearable persistence. But that she was cursing me, knowing that I built the Redoubt to postpone my death.*
 
-My face spasms for a second but quickly changes into something amicable: “You were right to notice that the main function of the Redoubt is to protect my core and my dignity sprouting from it like a flower; to uphold the shape of my soul until my body’s dissolution. To outlast is the correct term.”
+My face spasms for a second but quickly changes into something amicable: “You were right to notice earlier that the main function of the Redoubt is to protect my core and my dignity sprouting from it like a flower; to uphold the shape of my soul until my body’s dissolution. To *outlast* is the correct term.”
 
-*Symmetry Stranger pripomni, da bo Utrdba stala tako dolgo, dokler bo v mojem srcu njena geometrija.*
+*S. S. adds that the fort will stand as long as there is its geometry in my heart.*
 
 “Tell me, how many of your rodent-shaped servitors do you think Julija can handle?”
 
-*Symmetry Stranger odvrne, da čeprav je Julija sposobna uničiti vrtoglavo število njegovih podanikov, ne more preživeti pomanjkanja moje volje do samoobdrževanja, ki razpade skozi izraze, kot so diagnoza, simptomi in zabloda.*
+*S. S. says that even though Julija is capable of defeating an enormous number of his servants, she cannot survive my lack of will to self-preservation caused by terms such as ‘diagnosis’, ‘symptom’, and ‘delusion’.*
 
 Everything becomes silent, and my face receives a sad expression; my eyelids shut almost completely: “I know. I must hide ...”
 
 **65**
 
-“So, uh, you don’t want to see what’s inside?” Laughs. “Yes, I was only jesting, but you knew that!” Laughs. “Aha-ha, yes ...!”
+“So, uh, you don’t want to see what’s inside?” *Laughs.* “Yes, I was only jesting, but you knew that!” *Laughs.* “Aha-ha, yes ...!”
 
-*Symmetry Stranger me vpraša, če se včasih smejim zato, ker menim, da sovražnik ne pričakuje, da se bo nasprotnik smejal.*
+*S. S. asks if I laugh because I believe that the enemy would not expect their opponent to laugh.*
 
 My face becomes friendly: “I merely laugh because I want to laugh. Be that as it may, you can make an observation if you want. It can either be cruel or sweet. It can also be cold and indifferent.” I stare blankly at the lake.
 
-*Symmetry Stranger mi poje hvalo.*
+*S. S. sings praises to me.*
 
-Moj odgovor: “So beautiful. I’m flattered.” I almost cry. My face becomes sad and I look to the sky: “Oh, Julija. Will we ever see each other again? It’s been only one week, and yet the waiting feels eternal.”
+My reply: “So beautiful. I’m flattered.” I almost cry. My face becomes sad and I look to the sky: “Oh, Julija. Will we ever see each other again? It’s been only one week, and yet the waiting feels eternal.”
 
 **66**
 
 I imagine myself in chains observing a funny-looking wizard dancing while draining my energies: “The most catastrophic event would be ... the dissolution of my core in a pool of chemicals. – The walls would crumble, the lake would be drained, the Image would fade! Aaah!!”
 
-*Symmetry Stranger pripomni, da bi v tem primeru Utrdba izgubila pomen, Rdeča trdnjava pa bi prenehala biti opazovana.*
+*S. S.: Yes, the Redoubt would lose all its meaning, while the Red Fortress would be deprived of its observer.”*
 
 I snap out of it, turn to you, and say, “Would you like to ask me something or make another observation?”
 
-*Symmetry Stranger me vpraša, ali se Julija boji, da bi jo Neznana Oseba pozabila, potem ko bi si prisvojila njeno sonce.*
+*S. S. wants to know if Julija is afraid that she would be forgotten if I wrested away her sun.*
 
-Moj odgovor: “No, Julija is not afraid. She is not afraid because she does not care. She is care-free like a little child. And yet ... she still suffers with me. If I could, I would get rid of her, but I need her to see beauty. She insults me; probably because she doesn’t want to be (with) me. She does not care about the Redoubt and the other things. She absolutely cannot vanish into me, as the sun she had stolen from me, magnifying it ninety-nine-fold, would kill me.
+My reply: “No, Julija is not afraid. She is not afraid because she does not care. She is care-free like a little child. And yet ... she still suffers with me. If I could, I would get rid of her, but I need her to see beauty. She insults me; probably because she doesn’t want to be (with) me. She does not care about the Redoubt and the other things. She absolutely cannot vanish into me, as the sun she had stolen from me, magnifying it ninety-nine-fold, would kill me.
 
 We talked about her extensively one week ago. I don’t want to think about her too much; she’s embarrassing.”
