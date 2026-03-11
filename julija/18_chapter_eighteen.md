@@ -6,7 +6,7 @@
 
 Today I was attacked by a bad memory; so to fight it, I simply teleported to the Flatlands, as they are sealed of from the rest of my mindscape, Lake Redoubt itself being isolated from both. In this land, there exists no harmful connection either to the external realm or the other parts of my immaterial world.
 
-*Senčna postava opaža, da je Dežela Ravnin neka tretja opcija: niti likvidacija (Julijina terjatev) niti utrjenost (Jezerna utrdba), temveč umaknitev v ravnodušnost (duhovna Švica).*
+*Shadowy gentleman: Yes, I see: your very own spiritual Switzerland.*
 
 These parts are slightly contaminated now, though. I wish I knew how to get rid of you.
 
