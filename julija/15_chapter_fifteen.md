@@ -73,7 +73,7 @@ The golden hour. The clouds serve as a cushion for the slowly descending sun-ray
 
 Her hand is touching my scalp now; it is buried deep below my hair: “LIQUIDATE THE VESSEL! STOP ITS FUNCTIONS! DESTROY IT NOW!!!” I am scared.
 
-Julija is screaming at the screen, “YOU ARE ENJOYING HER SUFFERING, YOU WEST INDIES PERVERT! IT IS LIKE A SNUFF MOVIE TO YOU!” I close my eyes, touch my forehead, and say, “Let them enjoy.”
+Julija is screaming at the screen, “You are enjoying her suffering, you West Indies pervert!!! It is like a snuff movie to you!” I close my eyes, touch my forehead, and say, “Let them enjoy.”
 
 Julija: “Hallo. Hallo. Hallo!!! Is this how a gentleman is supposed to behave in front of you?! Go ahead. Tolerate it. Tolerate it more!
 
