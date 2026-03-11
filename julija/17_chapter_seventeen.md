@@ -118,7 +118,7 @@ Someday, perhaps, a knight in shining armour will appear, and he will say, “I�
 
 Me: “Mister Flaps!”
 
-The knight looks around and sees that we are surrounded by the golems: “I get it. Those are you captors. En garde!” Mister Flaps politely requests he makes himself scarce. The knight replies, “Huh? Is that Italian?” but after realizing I’m their friend, and after me asking him, “You think you are better than Flaps?” he screams, “Monster! You are a witch!” and lunge at me. The golems simply and swiftly chop him into pieces, even though he is still wearing his armour.
+The knight looks around and sees that we are surrounded by the golems: “I get it. Those are you captors. En garde!” Mister Flaps politely requests he make himself scarce. The knight replies, “Huh? Is that Italian?” but after realizing I’m their friend, and after me asking him, “You think you are better than Flaps?” he screams, “Monster! You are a witch!” and lunge at me. The golems simply and swiftly chop him into pieces, even though he is still wearing his armour.
 
 *Senčna postava opaža, da logika Julijinega nasilja ne popušča, tudi vtem ko je ona sama odsotna.*
 
