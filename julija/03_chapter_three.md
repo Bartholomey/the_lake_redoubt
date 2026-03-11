@@ -14,7 +14,7 @@ My reply: “No, the astonishment that article had given me broke its usual flow
 
 *Symmetry Stranger says the melancholy might be the only thing that lets me move without shattering. He asks me if I would like to drift with the melancholy a bit longer.*
 
-My reply: “Of course I would like to drift with the melancholy a bit longer; it’s my default mode of existence. Could you ask me a very heavy question?
+My answer: “Of course I would like to drift with the melancholy a bit longer; it’s my default mode of existence. Could you ask me a very heavy question?
 
 ...
 
