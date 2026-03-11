@@ -54,15 +54,11 @@ The creature starts moving slowly towards my legs, making me lift one of them, s
 
 Mr. Flaps: “Diesa beezt vis comfirmada.”
 
-...
-
 The language he speaks is spectacularly broken English. It’s as if he is mocking it deliberately, wanting to desecrate it. And we all understand him: diesa = this, pales = please, and so on. (‘Yorra gras. Youya beezt vis[-à-vis] samanna mi?’ = ‘Your grace. You have summoned me?’)
 
 *The shadowy figure opines that mister Flaps is making fun of me, remarking that his defacement of words is not entirely consistent.*
 
 Me: “No, he is not mocking me. He knows I like the way he speaks. And there is no need for consistency.
-
-...
 
 Mister Flaps!” 
 
@@ -72,7 +68,7 @@ Me: “See? No language is logical.”
 
 Flaps is funny because when he talks like that, his serious, smart facial expression is always the same.
 
-...
+**126**
 
 Me: “Burn everything; bring me no trophies.”
 
@@ -91,7 +87,7 @@ It goes like this: I give the order, Flaps receives my troops under his command,
 
 I know that, in reality, similar warfare had always been messy and mostly imprecise; people got their ears, noses cut off and suffered broken bones. It was slow and painful. But in the Flatlands, everything is sterile; the combatants move mechanically, almost as if they were cogs in a machine. Even Julija's fully enclosed armour gives her ability to move the way the golem-like servitors move. One swing, one thrust, and it’s over – at least in most cases.
 
-**126**
+**127**
 
 I’m still half-lying on the bench, still looking bored, watching the fire in the distance, with Mister Flaps rapidly approaching my person. He stops seven meters in front of the bench, looks me in the eyes, and presses his rapier-holding hand against his heart. I nod: “You are dismissed.” I feel the murmur of melancholy pressing against my head yet again. Tell me something, shadowy figure.
 
@@ -99,7 +95,7 @@ I’m still half-lying on the bench, still looking bored, watching the fire in t
 
 Aren’t you going to make fun of Mister Flaps?
 
-**127**
+**128**
 
 Someday, perhaps, a knight in shining armour will appear, and he will say, “I’ve come to set you free.”
 
@@ -109,6 +105,6 @@ The knight looks around and sees that we are surrounded by the golems: “I get 
 
 *The shadowy figure observes that Julija’s violence is present even when she herself is not.*
 
-**128**
+**129**
 
 There are two sides to Julija: one is the admiration of violence and its sacredness, the acknowledgment of its necessity, and the other is the screeching in the face of everyday horror: the I-hide-and-scream-at-the-world’s-violent-ways side. I prefer the latter.
