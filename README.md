@@ -28,7 +28,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XVI — The Contract](julija/16_chapter_sixteen.md)
 - [Chapter XVII — The Militarization of the Flatlands](julija/17_chapter_seventeen.md)
 - [Chapter XVIII — Behold, the Vastness of the Flatlands!](julija/18_chapter_eighteen.md)
-- [Chapter XIX — Ničevost iz preteklosti](julija/19_chapter_nineteen.md)
+- [Chapter XIX — The Blackness From the Past](julija/19_chapter_nineteen.md)
 - [Chapter XX — In Front of the Cemetery Wall](julija/20_chapter_twenty.md)
 - [Chapter XXI — The Urgent Session in the Lake Redoubt](julija/21_chapter_twenty-one.md)
 - [Chapter XXII — The Next Day](julija/22_chapter_twenty-two.md)
