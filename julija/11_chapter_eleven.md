@@ -4,7 +4,7 @@
 
 **72**
 
-You still don’t know what Julija is, do you? I know very well what she is. I am hiding her, or the thing she is, under thick layers of illusion. She is both something outside of me, and something that emerges through me. She is something that erupts when the iron dam, the normal me, dissolves.
+You still don’t know who Julija is, do you? I know very well what she is. I am hiding her, or the thing she is, under thick layers of illusion. She is both something outside of me, and something that emerges through me. She is something that erupts when the iron dam, the normal me, dissolves.
 
 *The angel opines that Julija is my response to the fact that I was born unfinished. “Why are you hiding her?”*
 
@@ -30,7 +30,7 @@ My reply: *Solemn tone.* “It is something that keeps me upright. Something nec
 
 *The angel retorts that he does not see the point in my uprightness; that he sees no court and no assembly that could witness it. “Are you so upright because you are afraid that you might break down in public?”*
 
-My reply: “Julija is something that comes to me only when I summon her; she cannot come on her own, so there is no fear of ‘breaking down in public’. This world will not tear me apart me and reshape me to its liking. And neither will you.”
+My answer: “Julija is something that comes to me only when I summon her; she cannot come on her own, so there is no fear of ‘breaking down in public’. This world will not tear me apart me and reshape me to its liking. And neither will you.”
 
 *The angel replies that I am not afraid of Julija herself, but what she confirms when she appears.*
 
