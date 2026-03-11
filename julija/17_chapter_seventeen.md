@@ -36,8 +36,8 @@ After having gestured with both hands, I clap five times and five falchion-wield
 
 I point my right forefinger at you, the shadowy figure, and say in a somewhat loud voice, “Tell me what this is, right now!”
 
-                                                      ...
-
+...
+               
 **124**
 
 It was calm here last summer. Now strange things are scurrying and lying about the meadows. No matter; the area is vast. I’ll just carve myself a new, unspoiled path! Now that I’ve become bored of feeling sorry for myself, and now that Julija’s afterglow is gone, I’ll be wandering here in silence, knowing she’s not coming back any time soon; she was completely absent during the last winter, and I’ll be wondering when will the next hurricane appear on the horizon, and whether it will be evadable. I sit down on a bench, after having it brought to me on a small white cloud, and relax my legs, looking bored.
