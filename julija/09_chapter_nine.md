@@ -10,7 +10,7 @@ My eyes open, but the whole view is blocked by your pitch black head, their red 
 
 This is the first summer that someone uninvited, something autonomous, you, void angel, is camping in my private space. Do you think there will be another summer with me and you strolling along the lake shore? ... Watch out, behind you!!!” You slowly begin to turn your whole shell in the direction my finger is pointing, and the moment I deem you rotated sufficiently, I swiftly move behind your back, after having gestured and pulled out Julija’s blade out of a small pocket portal, and strike the back of your head. I was expecting to hear a clang, but there was no sound; the weapon bounced off and flew out of my hands. I quickly ran to pick it up. “Listen,” I say while holding the sword as if trying to hide it behind my body with one hand, “... please don’t attack me. I was just testing something.” I gesture and the golden tool of destruction is swallowed by a tiny pocket. “No hard feelings? Y-you are an invader after all!” I turn my back to you. “Come, portal, come up! Open up! Swallow me! ... ... ... Come up! ... ... Come up! ... ... Gaah!! My manœuvring was off!  ... A-at any rate, w-would you like to ask me something?”
 
-*The void angel turns slowly, as if he were a giant mechanism, and speaks, “When you handle and talk about Julija’s blade, do you worship it?*
+*The void angel turns slowly, as if he were a giant mechanism, and speaks: “When you handle and talk about Julija’s blade, do you worship it?*
 
 I put my hands on my ears, and speak in a slightly annoyed manner: “I refuse to answer.”
 
@@ -34,7 +34,7 @@ My facial expression suddenly becomes cheerful, and I almost scream at you in a 
 
 My face starts to spasm a little, and my mouth is showing the teeth it knew up until now to hide so well: “You know very well I can’t unmake you, you haughty, ‘symmetrical’ jester! Ahh, get out of my head!”
 
-*The void angel replies that while it is true that he is symmetrical, his purpose is not to entertain: “Hit me again if it would help.”*
+*The void angel replies that while it is true he is symmetrical, his purpose is not to entertain: “Hit me again if it would help.”*
 
 I am showing my canine teeth now: “If Julija was here, she would bend your neck with her bare hands and strangl...” I quickly pause, and my face becomes gloomy. My eyelids fall. A strange, pulsing silence creates a cloud and wraps us in it.
 
