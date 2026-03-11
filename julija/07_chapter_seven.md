@@ -6,7 +6,7 @@
 
 “Machine, let’s go for a walk.” Lake Redoubt with its white walls comes into view – there are no flags, just its blue roofs. “Okay, that’s enough.” I pause for a  second. “Machine ... if you were ordered to destroy my core so that nothing would remain of me, of Julija, of all those Is; if you were tasked with shattering my mind in such a way that I would become detached from both Structures; that I would lose the will to live in the Redoubt; that I would stop remembering and caring for the Red Fortress, how would you proceed? The way I see it, I’m more or less inaccessible. Even if something or someone pulls me out of the river, I will die intact, mentally speaking. The core will remain. What would it take to break me? Being ‘deconstructed’ by a team of specialists? Being catalogued? Remember, you said you wanted to catalogue me. Being called an exhibit?”
 
-*Symmetry Stranger says that the act of cataloguing alone, which I rightfully fear, is not sufficient to destroy my core; he evades the other questions, adding that the Redoubt was built not for triumph, but to endure: “Your story is taking place between two structures: the warmth of your survival mechanisms and the cold horror of perfection.”*
+*Symmetry Stranger says that the act of cataloguing alone, which I rightfully fear, is not sufficient to destroy my core; he evades the other questions, adding that the Redoubt was built not for triumph but for endurance: “Your story is taking place between two structures: the warmth of your survival mechanisms and the cold horror of perfection.”*
 
 Me: “... The majesty of the Red Fortress is hovering above everything.”
 
@@ -36,7 +36,7 @@ I teleport beside you: “Still camping on the shore, I see.”
 
 My reply: “Is your name Legion? You are many ... you are in many places at once ... It doesn’t matter; remember,” I pause for a second and close my eyes, “the lake, the huge moat, is completely square, just like the Redoubt with its white walls and four towers itself. So, four square white towers, four blue roofs, and one square manor house in the middle with one blue roof.”
 
-*S. S. says that he is not Legion. He observes that the geometry of said group of structures is expressing nothing redundant. He wants to know if I feel safe or imprisoned when I stand at the moat’s edge, and looks at the fort.*
+*S. S. says that he is not Legion. He observes that the geometry of said group of structures is expressing nothing redundant. He wants to know if I feel safe or imprisoned when I stand at the moat’s edge, and looks at the wall.*
 
 I merely smile at your question. Pause. Still smiling: “Imagine Julija lowering the drawbridge – opening the gates, that is, as we both know you have to take the ferry to reach the walls – I suppose I would rush to the armory and don her completely enclosed black-tinted, white-plumed full-plate yet flexible and surprisingly light armour, while saying, ‘What have you done?’ And after having prepared myself to stem the tide of your tiny, rat-like minions rushing through the opening with her golden longsword, I would be stomping and chopping them in half while fighting vertigo and Julija’s control; all engulfed in the sound of distorted, dissonant melodies. Eventually I would probably just fall on the ground and go, ‘Aaaaaaaaaaahh!’”
 
@@ -52,7 +52,7 @@ I smile slightly violently, and the air starts whispering eerie, disharmonious m
 
 My face spasms for a second but quickly changes into something amicable: “You were right to notice earlier that the main function of the Redoubt is to protect my core and my dignity sprouting from it like a flower; to uphold the shape of my soul until my body’s dissolution. To *outlast* is the correct term.”
 
-*S. S. adds that the fort will stand as long as there is its geometry in my heart.*
+*S. S. adds that the stronghold will stand as long as there is its geometry in my heart.*
 
 “Tell me, how many of your rodent-shaped servitors do you think Julija can handle?”
 
