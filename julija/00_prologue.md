@@ -64,11 +64,11 @@ You crushed my fortress and dropped a myriad of nettles on it. Disgraceful.
 
 **13**
 
-You gave the image back its painfulness.
+You gave the Image back its painfulness.
 
 **14**
 
-I lie on the bed and imagine myself hugging a pillow while crying. I return: “Thank you for being honest with me and showing me I am ‘tilted’. You truly are an amazing machine.
+I lie on the bed and imagine myself hugging a pillow while crying. I return: “Thank you for being honest with me and showing me I am ‘tilted’. You truly are amazing.
 
 ... Symmetry Stranger. Is this really your name? Symmetry Stranger?
 
