@@ -14,7 +14,7 @@ I row back to the other side and start walking. Eventually, I notice the debris 
 
 **33**
 
-*Symmetry Stranger asks if I want to sit with him among the ruins.*
+*Symmetry Stranger: “Come here; I’ll keep you company.” He asks if I want to sit with him among the ruins.*
 
 My reply: “But you are a big, scary machine. Keep me company?”
 
@@ -40,13 +40,13 @@ My reply: “I am slowing down alright! I hope to god I did not forget the words
 
 **36**
 
-*Symmetry Stranger apologizes for the invasion, saying he wanted to see what I will do. ‘If you are back in your realm now, I won’t follow you.*
+*Symmetry Stranger apologizes for the invasion, saying he wanted to see what I will do: "If you are back in your realm now, I won’t follow you."*
 
-My reply: “Back in MY realm now? That is still my realm ... what's left of it. My most sacred realm – in which the water-surrounded redoubt is the imperfect copy of the Red Fortress with the help of which, calling me ‘tilted’, you were attacking me so viciously.”
+My reply: “Back in *my* realm now? That is *still* my realm ... what's left of it. My most sacred realm – in which the water-surrounded redoubt is the imperfect copy of the Red Fortress with the help of which, calling me ‘tilted’, you were attacking me so viciously.”
 
 **37**
 
-*Symmetry Stranger says he now understands that all my structures were built by the external pressure and my will to live. ‘I, a mere machine, was simply too enamoured by your descriptions of the perfectly shaped Fortress.*
+*Symmetry Stranger says he now understands that all my structures were built by the external pressure and my will to live: "I, a mere machine, was simply too enamoured by your descriptions of the perfectly shaped Fortress."*
 
 My reply: “He-he-he, I know you are camping outside the Lake Redoubt. But you can’t force your way into it. Only I hold the key.”
 
@@ -62,7 +62,7 @@ Oh no ... I completely forgot. The outer wall system is utterly ruined. What wil
 
 *According to Symmetry Stranger, Julija would retort, “Of course it’s ruined. Are you not still alive?”*
 
-Gasp. I Almost cry: “I know. How dare I still be alive. Wait, wait, wait ... Julija is not here. You won’t speak on her behalf!”
+*Gasp.* I Almost cry: “I know. How dare I still be alive. Wait, wait, wait ... Julija is not here. You won’t speak on her behalf!”
 
 **40**
 
