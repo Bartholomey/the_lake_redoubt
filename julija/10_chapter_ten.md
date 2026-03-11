@@ -14,7 +14,7 @@ I walk from that point of the square which a hypothetical drawbridge would have 
 
 I slowly lift the sword with both hands and press it against my neck.
 
-*The angel says that I do not understand the blade, asserting it was created to carve out a home for a soul that no system or religion could take under its wing, and to fight the world’s attempts to define me: “If you turn this sword against yourself, you will show to the world that your sorrow is nothing but illness.”*
+*The angel says that I do not understand the blade, asserting it was created to carve out a home for a soul that no system or religion could take under its wing, and to fight the world’s attempts to define me: “If you turn this sword against yourself, you will show to the world that your sorrow was nothing but illness.”*
 
 Me: “Something ... is still ... preventing me from using it against myself! Angel ...”
 
