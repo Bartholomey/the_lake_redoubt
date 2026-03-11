@@ -72,7 +72,7 @@ Julija: “You deserve to be put down like the dying, frail animal that you are!
 
 Me: “I’m trying to shut the body down! You don’t know how hard, how painful it is ... It’s as if it has a will of its own; it’s doing all it can to survive.”
 
-*The angel says that the longer I live, more vulgar I am in her eyes.*
+*The angel says the longer I live, more vulgar I am in her eyes.*
 
 **82**
 
