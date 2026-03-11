@@ -20,7 +20,7 @@ Now that someone or something granted you a shiny, exquisite new form, why don�
 
 “Void angel, void angel! What shall we do next, void angel? Would you like to take me somewhere?”
 
-*The void angel takes me to the plane between the symmetry of my square lake and the Red Fortress’ rejection (he still insists that the Fortress judged me and rejected me). Here are no structures, and no Julija. His question: “Do you still know who you are?”*
+*The void angel takes me to the plane between the symmetry of my square lake and the Red Fortress’ rejection (he still insists that the Fortress judged me and rejected me), to a place where there are no structures, and no Julija. His question: “Do you still know who you are?”*
 
 My reply: “I, the unnamed one ... I have never told you my name. Probably because it is of no consequence.” I sigh, sit on the ground, and fold my arms, staring drowsily in front of me. “I am so tired. So very tired.” I lay my head on my knees. “I wonder how much more ...” I stop abruptly. I lie on the ground and fall asleep.
 
