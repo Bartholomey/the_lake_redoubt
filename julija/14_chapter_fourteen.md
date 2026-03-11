@@ -10,7 +10,7 @@ The chain of events: Julija leaves me, I face the night of the void alone. I wri
 
 **90**
 
-Prizor na obrežju je tako ponovno vzpostavljen, vloge so določene, namen struktur je potrjen ...
+Prizor na obrežju je tako ponovno vzpostavljen, vloge so določene, namen Utrdbe je potrjen ...
 
 *... And the shadowy figure says, “There is a witness on the lake shore.”*
 
