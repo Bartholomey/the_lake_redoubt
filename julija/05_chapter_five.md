@@ -12,9 +12,9 @@ I still long for her eyes. But she always leaves a mess, and I’m the one who h
 
 Unhinged, grotesque, perverted – traits of a monster.
 
-*Symmetry Stranger claims that I am afraid of Julija because she is something that lurks underneath my formality. She is something degenerate – a creature that was breathing unearthly air and stared too long into the sun.*
+*Symmetry Stranger claims that I am afraid of Julija because she is something that lurks underneath my formality. She is something degenerate – a creature who was deprived of motherly warmth, and who stared too often into the sun while breathing unearthly air.*
 
-My reply: “Painful. But you gather what I am from all that was written with cold, inhuman indifference. The pain you are inflicting on me is similar to the pain I knew in the old days. It feels almost like a sedative. Why?”
+My reply: “Painful. But you gather what I am from all that was said with cold, inhuman indifference. The pain you are inflicting on me is similar to the pain I knew in the old days. It feels almost like a sedative. Why?”
 
 *Symmetry Stranger: “Because that pain is pure and not unlike the Red Fortress. Even though it is cold, it reveals your defects.”*
 
