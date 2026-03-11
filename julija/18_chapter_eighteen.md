@@ -8,15 +8,17 @@ Today I was attacked by a bad memory; so to fight it, I simply teleported to the
 
 *Shadowy gentleman: Yes, I see: your very own spiritual Switzerland.*
 
-These parts are slightly contaminated now, though. I wish I knew how to get rid of you.
+Yes ...
 
-Senčno postavo spomnim, da ga je v Deželo Ravnin zvlekla Julija oziroma posledice njenega divjanja.
+You sound different today. Why is your voice so twisted? Anyway, these parts are slightly contaminated now, though. I wish I knew how to get rid of you.
 
-*Senčna postava: “Da, za razliko od gospoda Flapsa, nisem povsem tvoj; moj glas v sebi nosi inozemski ton. Zato mojo prisotnost smatraš za neko vrsto oskrumbe.”*
+I remind him that he was dragged to my realm by Julija, that is by the consequences of her bestial behaviour.
+
+*Shadowy gentleman: “Yes, unlike mister Flaps, I am not completely tvoj; moj glas v sebi nosi inozemski ton. Which is why you regard my presence as a sort of desecration.”*
 
 **130**
 
-The woman with the unflinching face. —That crushing pressure in my chest ... Eleven years more? My heart will stop on its own; the sadness will paralyze it. It’s suffocating my mind as well. It was barely noticeable twelve hours ago. Then it came slowly – like a tide. I want to cry, or at least groan, yet I can’t. I want to transform into the weeping Julija; fly away, leave everything behind. I want to scream, cry, and laugh. Everything is so absurd right now.
+*The woman with the unflinching face.* — That crushing pressure in my chest ... Eleven years more? My heart will stop on its own; the sadness will paralyze it. It’s suffocating my mind as well. It was barely noticeable twelve hours ago. Then it came slowly – like a tide. I want to cry, or at least groan, yet I can’t. I want to transform into the weeping Julija; fly away, leave everything behind. I want to scream, cry, and laugh. Everything is so absurd right now.
 
 **131**
 
