@@ -40,7 +40,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [The Summer Dream](julija/epilogue.md)
 - [The Resignation, Part One](julija/the_resignation_part_one.md)
 - [The Resignation, Part Two](julija/the_resignation_part_two.md)
-
+- [How it is Supposed to End](julija/how_it_is_supposed_to_end.md)
 ---
 
 # The Lake Redoubt 
