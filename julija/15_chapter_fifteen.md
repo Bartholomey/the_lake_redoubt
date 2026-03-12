@@ -93,7 +93,7 @@ The mechanism inside me protected my body from her. But I don’t want to be a m
 
 But what if she was right? What if there is no next time? I would have to go alone, without feeling her warmth. She is standing on the road. Her form is pitch black. She is watching me. She knows I will have to face the void alone. She doesn’t insult me. She knows I will suffer.
 
-*Shadowy figure: “When the curtain falls, Julija is merely a shadow irrevocably connected to your fate.”*
+*Shadowy figure: “When the curtain falls, Julija is a mere shadow irrevocably connected to your fate.”*
 
 **108**
 
