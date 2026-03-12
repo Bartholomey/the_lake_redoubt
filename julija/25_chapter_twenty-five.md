@@ -1,4 +1,5 @@
-# Fragmenti krvoločnosti
+# The bloodlust fragments
+**Fragmenti krvoločnosti**
 
 <br>
 
@@ -41,8 +42,7 @@ Me: “It can’t be.” He rises, reciting the passage again, and again the atm
 
 It is the masculine force of Lake Redoubt itself!
 
-
-*KONEC PRVEGA DELA*
+*THE END*
 
 
 Bartolomej Maussar
