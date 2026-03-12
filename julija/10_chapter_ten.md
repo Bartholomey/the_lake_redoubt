@@ -1,8 +1,9 @@
-# Kdaj mi bo odbila zadnja ura?
+# When will I die?
+**Kdaj mi bo odbila zadnja ura?**
 
 <br>
 
-**70**
+**69**
 
 A huge clock appears out of nowhere and plays with time.
 
@@ -34,6 +35,6 @@ Me: “Don’t touch that!” I quickly return to the place where it was dropped
 
 *The angel lowers his head, forcing his minions to hide in ground holes and grass.*
 
-**71**
+**70**
 
 I am well aware that one day, the world will force me to die. But this place, including you, void angel, will live on in the voice of the word net that has been woven and entrusted with its representation.
