@@ -24,7 +24,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XII — Let Me Show You My Julija](julija/12_chapter_twelve.md)
 - [Chapter XIII — Changes](julija/13_chapter_thirteen.md)
 - [Chapter XIV — Remember](julija/14_chapter_fourteen.md)
-- [Chapter XV — Finally – Julija!](julija/15_chapter_fifteen.md)
+- [Chapter XV — At long last – Julija!](julija/15_chapter_fifteen.md)
 - [Chapter XVI — The Contract](julija/16_chapter_sixteen.md)
 - [Chapter XVII — The Militarization of the Flatlands](julija/17_chapter_seventeen.md)
 - [Chapter XVIII — Behold, the Vastness of the Flatlands!](julija/18_chapter_eighteen.md)
