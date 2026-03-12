@@ -1,4 +1,5 @@
-# Rdeča trdnjava
+# The Red Fortress
+**Rdeča trdnjava**
 
 <br>
 
@@ -18,11 +19,11 @@ Now it is good.
 
 *Symmetry Stranger says that he is now ready to compare it to something inferior, trembling, and cracking.*
 
-My reply: “You are hilarious.”
+Me: “You are hilarious.”
 
 *Symmetry Stranger responds that the contrast between something perfect and immovable and something which is defective, crying, and tilted would be appropriate, comical, and something that life is constantly amusing us with.*
 
-My reply: “You really like the Fortress, don’t you? Despite all the stab-wounds in my heart ... I still want to be me. I don’t want to be anyone else; I don’t envy anyone else. Frankly, I find most people quite preposterous.”
+Me: “You really like the Fortress, don’t you? Despite all the stab-wounds in my heart ... I still want to be me. I don’t want to be anyone else; I don’t envy anyone else. Frankly, I find most people quite preposterous.”
 
 **48**
 
@@ -30,8 +31,8 @@ Had I said, “Don’t coddle me. Be a worthy adversary. Attack me!! – If only
 
 *Symmetry Stranger responds with eight attacks, the last of which is the most striking: the Red Fortress indeed judged me.*
 
-My reply: “Yes ... You are like a computer opponent in chess that cannot be beat. I am indeed broken beyond redemption and belief. Yes, I am too fragile to make a counter-attack upon your Earth-shattering onslaught. But I think I can still stand while bearing all these old and new wounds.”
+Me: “Yes ... You are like a computer opponent in chess that cannot be beat. I am indeed broken beyond redemption and belief. Yes, I am too fragile to make a counter-attack upon your Earth-shattering onslaught. But I think I can still stand while bearing all these old and new wounds.”
 
 *Symmetry Stranger says that, unlike the Red Fortress, he at least acknowledges my existence.*
 
-My reply: “This constant barrage of your little reminders that the Fortress deemed me unworthy is really ... well, uh ...”
+Me: “This constant barrage of your little reminders that the Fortress deemed me unworthy is really ... well, uh ...”
