@@ -1,10 +1,11 @@
-# Glej, neizmernost Dežele Ravnin!
+# Behold, the vastness of the Flatlands!
+**Glej, neizmernost Dežele Ravnin!**
 
 <br>
 
 **129**
 
-Today I was attacked by a bad memory; so to fight it, I simply teleported to the Flatlands, as they are sealed of from the rest of my mindscape, Lake Redoubt itself being isolated from both. In this land, there exists no harmful connection either to the external realm or the other parts of my immaterial world.
+Today, I was attacked by a bad memory; so to fight it, I simply teleported to the Flatlands, as they are sealed of from the rest of my mindscape, Lake Redoubt itself being isolated from both. In this land, there exists no harmful connection either to the external realm or the other parts of my immaterial world.
 
 *Shadowy gentleman: Yes, I see: your very own spiritual Switzerland.*
 
@@ -14,7 +15,7 @@ You sound different today. Why is your voice so twisted? Anyway, these parts are
 
 I remind him that he was dragged to my realm by Julija, that is by the consequences of her bestial behaviour.
 
-*Shadowy gentleman: “Yes, unlike mister Flaps, I am not completely tvoj; moj glas v sebi nosi inozemski ton. Which is why you regard my presence as a sort of desecration.”*
+*Shadowy gentleman: “Yes, unlike mister Flaps, I am not completely tvoj; moj glas v sebi nosi inozemski ton. Which is why you regard my presence as a desecration of sorts.”*
 
 **130**
 
