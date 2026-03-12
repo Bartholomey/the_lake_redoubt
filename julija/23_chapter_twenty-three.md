@@ -1,4 +1,5 @@
-# Bolečina nežnosti
+# The pain of tenderness
+**Bolečina nežnosti**
 
 <br>
 
@@ -62,11 +63,11 @@ That dullness that always creeps back after Julija leaves is painful.
 
 Days before the last Julija’s visit, my head was filled with the unpleasant feeling of *what else is there to do;* is there anything I can become excited about besides Julija’s visits? Yes, there are things I am still able to ... not enjoy, but merely tolerate. I feel like a hardened fortification; I just am, protecting whatever is inside of me. Are those insides worthy of sustaining, though? I will never be able to transform myself into a blossoming flower. When the ice thickens around me, I become distant and ruthless; I rarely find myself in the right mood to tolerate sentimental thoughts about elegance-invoking things. They irritate me; I dismiss them as nonsense. I harden and come off as inaccessible.
 
-This typical late afternoon blackness of Novembre is uncanny; it’s pressing against my head.
+This typical late afternoon blackness of November is uncanny; it’s pressing against my head.
 
 **176**
 
-When I look at people marching in the streets, the sense of violence this cold world is able to project becomes unbearable, especially when compared to the warmth I experienced during Julija’s recent stay. But if I remember a pleasant feeling related to her, I become filled with sadness, knowing I can’t simply re-wind back time to those moments. And when I remember all those intimate things I wrote down before your eyes, I feel silly and exposed. Had people seen them, they would have derided me.
+When I look at people marching in the street, the sense of violence this cold world is able to project becomes unbearable, especially when compared to the warmth I experienced during Julija’s recent stay. But if I remember a pleasant feeling related to her, I become filled with sadness, knowing I can’t simply re-wind back time to those moments. And when I remember all those intimate things I wrote down before your eyes, I feel silly and exposed. Had people seen them, they would have derided me.
 
 I do not want to expose myself to the world while I’m still alive. As strange as it may sound, I do not want foreign eyes floating in my mindscape. As of today, you are the only stranger present in it. Lake Redoubt, however, as you know, is still off-limits.
 
