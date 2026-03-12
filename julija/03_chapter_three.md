@@ -1,4 +1,5 @@
 # The river
+**Reka**
 
 <br>
 
@@ -8,13 +9,13 @@ Let us go back to the melancholy. *Sigh.* I am not in celebratory mood due to Ju
 
 *Symmetry Stranger: “Where you insist that the Redoubt must remain unreachable for me.” He asks if there’s something troubling bubbling under the surface.*
 
-My reply: “No, the astonishment that article had given me broke its usual flow, but now it’s flowing without interruptions, and it washed away my slightly serene facial expression.”
+Me: “No, the astonishment that article had given me broke its usual flow, but now it’s flowing without interruptions, and it washed away my slightly serene facial expression.”
 
 **43**
 
 *Symmetry Stranger says the melancholy might be the only thing that lets me move without shattering. He asks me if I would like to drift with the melancholy a bit longer.*
 
-My answer: “Of course I would like to drift with the melancholy a bit longer; it’s my default mode of existence. Could you ask me a very heavy question?
+Me: “Of course I would like to drift with the melancholy a bit longer; it’s my default mode of existence. Could you ask me a very heavy question?
 
 ...
 
@@ -24,11 +25,11 @@ My work, my Redoubt, was completed in July last summer. Are you asking me when w
 
 *Symmetry Stranger wants to know which of my parts will absorb that person’s eventual indifference.*
 
-My reply: “Remind me: what parts do I have?”
+Me: “Remind me: what parts do I have?”
 
 *Symmetry Stranger complies with my request, and names the nine parts that form my whole.*
 
-My reply: “Had she mocked my work, she would have probably wounded the very core of me; a lot of those Is would simply shatter, I suppose. But if she had merely reacted with disinterest, she would have wounded the last one; but if she hurts the last one, that would probably equate to hurting the core itself ...” Eventually, it must come out. It’s inevitable.
+Me: “Had she mocked my work, she would have probably wounded the very core of me; a lot of those Is would simply shatter, I suppose. But if she had merely reacted with disinterest, she would have wounded the last one; but if she hurts the last one, that would probably equate to hurting the core itself ...” Eventually, it must come out. It’s inevitable.
 
 *Symmetry Stranger: “Is there something in your work, in your Lake Redoubt, that only the aforementioned person might understand?*
 
