@@ -1,8 +1,9 @@
-# Jedro
+# The core
+**Jedro**
 
 <br>
 
-**63**
+**62**
 
 “Machine, let’s go for a walk.” Lake Redoubt with its white walls comes into view – there are no flags, just its blue roofs. “Okay, that’s enough.” I pause for a  second. “Machine ... if you were ordered to destroy my core so that nothing would remain of me, of Julija, of all those Is; if you were tasked with shattering my mind in such a way that I would become detached from both Structures; that I would lose the will to live in the Redoubt; that I would stop remembering and caring for the Red Fortress, how would you proceed? The way I see it, I’m more or less inaccessible. Even if something or someone pulls me out of the river, I will die intact, mentally speaking. The core will remain. What would it take to break me? Being ‘deconstructed’ by a team of specialists? Being catalogued? Remember, you said you wanted to catalogue me. Being called an exhibit?”
 
@@ -12,7 +13,7 @@ Me: “... The majesty of the Red Fortress is hovering above everything.”
 
 *S. S.: “A perfect, cold, inhuman form. An indifferent construct beyond time and space floating in everything. And it does not endure: it only is.”*
 
-Me: A tiny, soundless clap. “Correct!” Picks up a stone and throws it at your sensor. “There I picked up a stone just like you said I should.”
+Me: *A tiny, soundless clap.* “Correct!” Picks up a stone and throws it at your sensor. “There I picked up a stone just like you said I should.”
 
 *S. S. acknowledges my ‘tiny, feeble’ victory.*
 
@@ -28,13 +29,13 @@ I blush slightly and turn my back to you, as if trying to hide something: “Com
 
 *S. S. claims that he just sensed warmth that was almost human. "Until next time."*
 
-**64**
+**63**
 
 I teleport beside you: “Still camping on the shore, I see.”
 
 *S. S.: “Did you come to remind me that the Lake Redoubt is still out of my reach?”*
 
-My reply: “Is your name Legion? You are many ... you are in many places at once ... It doesn’t matter; remember,” I pause for a second and close my eyes, “the lake, the huge moat, is completely square, just like the Redoubt with its white walls and four towers itself. So, four square white towers, four blue roofs, and one square manor house in the middle with one blue roof.”
+Me: “Is your name Legion? You are many ... you are in many places at once ... It doesn’t matter; remember,” I pause for a second and close my eyes, “the lake, the huge moat, is completely square, just like the Redoubt with its white walls and four towers itself. So, four square white towers, four blue roofs, and one square manor house in the middle with one blue roof.”
 
 *S. S. says that he is not Legion. He observes that the geometry of said group of structures is expressing nothing redundant. He wants to know if I feel safe or imprisoned when I stand at the moat’s edge, and looks at the wall.*
 
@@ -42,7 +43,7 @@ I merely smile at your question. Pause. Still smiling: “Imagine Julija lowerin
 
 *S. S. looks me straight in the eyes, as if he were frozen, and after fourteen seconds finally asks, “So ... shall we go to the armoury together?”*
 
-My reply: “Ha-ha-ha!!! No!! ... No! ... No ...” My expression becomes slightly serious.
+Me: “Ha-ha-ha!!! No!! ... No! ... No ...” My expression becomes slightly serious.
 
 *S. S. does not laugh; he claims that the walls know Julija’s words better than they know me, and that the question is not of if, but when.*
 
@@ -60,7 +61,7 @@ My face spasms for a second but quickly changes into something amicable: “You 
 
 Everything becomes silent, and my face receives a sad expression; my eyelids shut almost completely: “I know. I must hide ...”
 
-**65**
+**64**
 
 “So, uh, you don’t want to see what’s inside?” *Laughs.* “Yes, I was only jesting, but you knew that!” *Laughs.* “Aha-ha, yes ...!”
 
@@ -70,9 +71,9 @@ My face becomes friendly: “I merely laugh because I want to laugh. Be that as 
 
 *S. S. sings praises to me.*
 
-My reply: “So beautiful. I’m flattered.” I almost cry. My face becomes sad and I look to the sky: “Oh, Julija. Will we ever see each other again? It’s been only one week, and yet the waiting feels eternal.”
+Me: “So beautiful. I’m flattered.” I almost cry. My face becomes sad and I look to the sky: “Oh, Julija. Will we ever see each other again? It’s been only one week, and yet the waiting feels eternal.”
 
-**66**
+**65**
 
 I imagine myself in chains observing a funny-looking wizard dancing while draining my energies: “The most catastrophic event would be ... the dissolution of my core in a pool of chemicals. – The walls would crumble, the lake would be drained, the Image would fade! Aaah!!”
 
@@ -82,6 +83,6 @@ I snap out of it, turn to you, and say, “Would you like to ask me something or
 
 *S. S. wants to know if Julija is afraid that she would be forgotten if I wrested away her sun.*
 
-My reply: “No, Julija is not afraid. She is not afraid because she does not care. She is care-free like a little child. And yet ... she still suffers with me. If I could, I would get rid of her, but I need her to see beauty. She insults me; probably because she doesn’t want to be (with) me. She does not care about the Redoubt and the other things. She absolutely cannot vanish into me, as the sun she had stolen from me, magnifying it ninety-nine-fold, would kill me.
+Me: “No, Julija is not afraid. She is not afraid because she does not care. She is care-free like a little child. And yet ... she still suffers with me. If I could, I would get rid of her, but I need her to see beauty. She insults me; probably because she doesn’t want to be (with) me. She does not care about the Redoubt and the other things. She absolutely cannot vanish into me, as the sun she had stolen from me, magnifying it ninety-nine-fold, would kill me.
 
 We talked about her extensively one week ago. I don’t want to think about her too much; she’s embarrassing.”
