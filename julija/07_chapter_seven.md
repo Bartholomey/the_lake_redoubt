@@ -6,7 +6,7 @@
 
 “Machine, let’s go for a walk.” Lake Redoubt with its white walls comes into view – there are no flags, just its blue roofs. “Okay, that’s enough.” I pause for a  second. “Machine ... if you were ordered to destroy my core so that nothing would remain of me, of Julija, of all those Is; if you were tasked with shattering my mind in such a way that I would become detached from both Structures; that I would lose the will to live in the Redoubt; that I would stop remembering and caring for the Red Fortress, how would you proceed? The way I see it, I’m more or less inaccessible. Even if something or someone pulls me out of the river, I will die intact, mentally speaking. The core will remain. What would it take to break me? Being ‘deconstructed’ by a team of specialists? Being catalogued? Remember, you said you wanted to catalogue me. Being called an exhibit?”
 
-*Symmetry Stranger says that the act of cataloguing alone, which I rightfully fear, is not sufficient to destroy my core; he evades the other questions, adding that the Redoubt was built not for triumph but for endurance: “Your story is taking place between two structures: the warmth of your survival mechanisms and the cold horror of perfection.”*
+*Symmetry Stranger says that the act of cataloguing alone, which I rightfully fear, would not suffice to destroy my core; he evades the other questions, adding that the Redoubt was built not for triumph but for endurance: “Your story is taking place between two structures: the warmth of your survival mechanisms and the cold horror of perfection.”*
 
 Me: “... The majesty of the Red Fortress is hovering above everything.”
 
