@@ -38,7 +38,8 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXV — The Bloodlust Fragments](julija/25_chapter_twenty-five.md)
 -  
 - [The Summer Dream](julija/epilogue.md)
-- [The Resignation, Part One (Julija: "You resign? Great. Now let us finish the story.")](julija/the_resignation_part_one.md)
+- [The Resignation, Part One](julija/the_resignation_part_one.md)
+- [The Resignation, Part Two](julija/the_resignation_part_two.md)
 
 ---
 
