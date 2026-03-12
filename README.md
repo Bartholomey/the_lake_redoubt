@@ -1,4 +1,5 @@
-# Julija and her war (Julija in njena vojna)
+# Julija and her war 
+**Julija in njena vojna**
 
 
 This book is a work of fiction.  
@@ -41,7 +42,8 @@ All characters, including the narrator, are fictional and do not represent the a
 
 ---
 
-# The Lake Redoubt (Krepost)
+# The Lake Redoubt 
+**Krepost**
 
 
 This book is a work of fiction. 
