@@ -1,8 +1,9 @@
-# Protinapad
+# A counter-attack
+**Protinapad**
 
 <br>
 
-**69**
+**68**
 
 My eyes open, but the whole view is blocked by your pitch black head, their red metallic counterparts gazing into them: “Aaaah!!” I roll away from you and jump on my feet. The expression on my face steadies into something slightly angry: “Jesus Christ Almighty, who gave you permission to touch me?!
 
