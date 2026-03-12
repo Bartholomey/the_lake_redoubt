@@ -4,29 +4,29 @@
 
 **54**
 
-Tako izmikajoča kakor redka A: »Edini smisel našega truda je, da vas učimo, pokažemo, da so ljudje, ki so v sočloveku zmožni ugledati trpljenje in smeh. Mi smo bitja čustev, navdihovana, prežeta, vezana s toplim, nežnim nerazkrojljivim okovom ljubezni. Odenimo življenje v sladko igro lepote, joka in smeha!«
+Tako izmikajoča kakor redka Aurora: »Edini smisel našega truda je, da vas učimo, pokažemo, da so ljudje, ki so v sočloveku zmožni ugledati trpljenje in smeh. Mi smo bitja čustev, navdihovana, prežeta, vezana s toplim, nežnim nerazkrojljivim okovom ljubezni. Odenimo življenje v sladko igro lepote, joka in smeha!«
 
 Pogledala ga v je v očesi, brez besed, vedela je, spoznala je njegove občutke: razume ga. Prepustimo ostalim računanje, prepustimo jim, zakaj v njih poleg hladne preračunljivosti ničesar drugega ni. One so nosilke pristnih čustvev, one so čustva. Vse drugo je zgolj nesrečno posnemanje.
 
-A: »Vse hočemo spoznavati na stopnji čustev: s pogledom, dotikom, nasmehom, vonjem. Želim te poznati s pogledom, dotikom, nasmehom, brez vsakršnih besed, in pozaba našega bogastva, naših čustev, vodi v otožni obraz. In če čustvom nasprotno dovolimo, – če se predamo našemu bistvu, našemu globoko ležečemu bogastvu, bomo nebeškost privedli k nam v ta svet.«
+Aurora: »Vse hočemo spoznavati na stopnji čustev: s pogledom, dotikom, nasmehom, vonjem. Želim te poznati s pogledom, dotikom, nasmehom, brez vsakršnih besed, in pozaba našega bogastva, naših čustev, vodi v otožni obraz. In če čustvom nasprotno dovolimo, – če se predamo našemu bistvu, našemu globoko ležečemu bogastvu, bomo nebeškost privedli k nam v ta svet.«
 
 **55**
 
 Gospodarica z rahlo iztegnjeno desno roko; nežni beli prsti počivajo na mizi. Miruje. Njena leva roka, katere spodnji del je polovično razkril široki rokav debele temnordeče vzorčaste halje, z lahno pestjo miruje za oziroma ob spodnjem delu oblačila, ki v tem položaju malenkostno presega koleni. Nogi sta sproščeni, ne pretesno skupaj. Premika zgolj svoji rdečkasti ustnici. Očesi sta okrogli in široko toda sproščeno odprti. 
 
-A se pri borni namizni luči nasloni na svojo desno stisnjeno pest in milo zajoče. Ali si bila visoko na nebu svetlikajoča se zvezda? Sijajno nebeško telo, ki je privabljalo vse tiste umazance, ki so se sprva zdeli kot neškodljiva, plašna čreda, ki potrebuje kraljico? Kaj se je potem zgodilo? Ali si postala umazana od vseh tistih spolzkih šap? Ali so tvoji do pasu segajoči lasje, taisti lasje zvezd, sonca, ki so trpeli tvojo dobrosrčnost, zahtevali, da jih prav sleherni dan namakaš v vedro hladne deževnice in solz? Ali si to res ti? No, njena krona je zdaj mnogo srečnejša. Njena krona, njen odkriti prijatelj ne potrebuje veliko skrbi potem, ko je na zemljo narisala črto in za vekomaj ločila lepoto od grdavža.
+Aurora se pri borni namizni luči nasloni na svojo desno stisnjeno pest in milo zajoče. Ali si bila visoko na nebu svetlikajoča se zvezda? Sijajno nebeško telo, ki je privabljalo vse tiste umazance, ki so se sprva zdeli kot neškodljiva, plašna čreda, ki potrebuje kraljico? Kaj se je potem zgodilo? Ali si postala umazana od vseh tistih spolzkih šap? Ali so tvoji do pasu segajoči lasje, taisti lasje zvezd, sonca, ki so trpeli tvojo dobrosrčnost, zahtevali, da jih prav sleherni dan namakaš v vedro hladne deževnice in solz? Ali si to res ti? No, njena krona je zdaj mnogo srečnejša. Njena krona, njen odkriti prijatelj ne potrebuje veliko skrbi potem, ko je na zemljo narisala črto in za vekomaj ločila lepoto od grdavža.
 
 **56**
 
-A: »Mar nisem bila jaz tista, ki te je nežno potegnila za vrat, ti kazala posledice tvoje zlosti? Ali nisem bila jaz tista, ki te je pobožala, objela, ko bi te drugi živega raztrgali, požrli? Mar te nisem s seboj v stolp vzela, ko je vroča solza po tebi polzela? Da, jaz sem bila tista, ki te je branila pred samoto, ko si sam sebi postajal nevaren. Ja, moji očesi sta tisti, ki sta znali prodreti skozi meglo in jo razpršiti, kakor sta za njo slutili sramežljivo lepoto.«
+Aurora: »Mar nisem bila jaz tista, ki te je nežno potegnila za vrat, ti kazala posledice tvoje zlosti? Ali nisem bila jaz tista, ki te je pobožala, objela, ko bi te drugi živega raztrgali, požrli? Mar te nisem s seboj v stolp vzela, ko je vroča solza po tebi polzela? Da, jaz sem bila tista, ki te je branila pred samoto, ko si sam sebi postajal nevaren. Ja, moji očesi sta tisti, ki sta znali prodreti skozi meglo in jo razpršiti, kakor sta za njo slutili sramežljivo lepoto.«
 
 **57**
 
-A: »Namesto ponovnega plazenja: pretvori se v zver ... in uživaj v občutku, ki ga nisi še nikoli izkusil: postal si prost. Danes nisi otožnega pogleda iz daljave nakazal, da me želiš tako kot včeraj pogladiti po svileni obleki; v kako absurdno se je tvoja nova moč znenada preobrazila. Nikoli, resnično nikdar me takšne še nisi videl: moj obraz, moje besede so vpričo tvoje nove moči nad teboj izgubile vsakršen vpliv. Spregovori – končno, in gledam te, uho sem svoje zajela z dlanjo, moj obraz za trenutek uveni. Nenadoma se zavem svojega spodrsljaja, postane mi neznosno vroče, začnem teči ter se zaloputnem v najvišjo sobano svojega stolpa; ledena roža mi boš pravil ti, in z višav bom nadte zvala vse, kar mi zvesto služi.«
+Aurora: »Namesto ponovnega plazenja: pretvori se v zver ... in uživaj v občutku, ki ga nisi še nikoli izkusil: postal si prost. Danes nisi otožnega pogleda iz daljave nakazal, da me želiš tako kot včeraj pogladiti po svileni obleki; v kako absurdno se je tvoja nova moč znenada preobrazila. Nikoli, resnično nikdar me takšne še nisi videl: moj obraz, moje besede so vpričo tvoje nove moči nad teboj izgubile vsakršen vpliv. Spregovori – končno, in gledam te, uho sem svoje zajela z dlanjo, moj obraz za trenutek uveni. Nenadoma se zavem svojega spodrsljaja, postane mi neznosno vroče, začnem teči ter se zaloputnem v najvišjo sobano svojega stolpa; ledena roža mi boš pravil ti, in z višav bom nadte zvala vse, kar mi zvesto služi.«
 
 **58**
 
-A: »Kakšna je vrednost tega sveta, ko je izropan dobrosrčnih ljudi in njihove medsebojne ljubezni? Raztreščen je okvir, ki je hranil, varoval in spajal njihova srca, ki se zdaj izgubljajo v nepregledni zmešnjavi in otožna predajajo iskanje. Osamljena sanjajo nova kraljestva ... hrepené — drugo po drugem.«
+Aurora: »Kakšna je vrednost tega sveta, ko je izropan dobrosrčnih ljudi in njihove medsebojne ljubezni? Raztreščen je okvir, ki je hranil, varoval in spajal njihova srca, ki se zdaj izgubljajo v nepregledni zmešnjavi in otožna predajajo iskanje. Osamljena sanjajo nova kraljestva ... hrepené — drugo po drugem.«
 
 **59**
 
@@ -34,7 +34,7 @@ Nasmehneš se, pokažeš zobé. Desno roko, z odprto, navidez nemočno dlanjo po
 
 **60**
 
-A: »Zbudim se jaz, z rokama udarim ob trda tla. Zaplavala sem iz postelje. Izza svojih dolgih, prosto padajočih pramenov strmim predse: glas ... glas pravi: 'Kako dolgo si sposobna krojiti, rezati, gladiti robove sveta? Mar ne vidiš, da si ostala zapuščena, odrezana na otočku? Da, celo tiste najredkejše redkosti, za dobre si jih oklicala, mirujejo v polepšanosti zgolj zastran tvoje slepe dobrote. Spoznala si gnilobo samega jedra, njegovo nujnost po bljuvanju ... vedno istega. Vedno bo vse gomazelo, vedno vse enako gomazelo.'«
+Aurora: »Zbudim se jaz, z rokama udarim ob trda tla. Zaplavala sem iz postelje. Izza svojih dolgih, prosto padajočih pramenov strmim predse: glas ... glas pravi: 'Kako dolgo si sposobna krojiti, rezati, gladiti robove sveta? Mar ne vidiš, da si ostala zapuščena, odrezana na otočku? Da, celo tiste najredkejše redkosti, za dobre si jih oklicala, mirujejo v polepšanosti zgolj zastran tvoje slepe dobrote. Spoznala si gnilobo samega jedra, njegovo nujnost po bljuvanju ... vedno istega. Vedno bo vse gomazelo, vedno vse enako gomazelo.'«
 
 Kdo lahko reče, da tvoji očesi z drugimi za seboj delita praznino? In kdo pravi, da boš z njimi združena v črnini?
 
