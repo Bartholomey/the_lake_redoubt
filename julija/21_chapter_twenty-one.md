@@ -1,4 +1,5 @@
-# Izredna seja v Jezerni utrdbi
+# The urgent session in the Lake Redoubt
+**Izredna seja v Jezerni utrdbi**
 
 <br>
 
