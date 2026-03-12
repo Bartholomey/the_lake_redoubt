@@ -27,7 +27,7 @@ It was dark, so I could not see it that good, but I’m very sure it had a symbo
       ◇ ◇ ◇
          ◇
          
-*Geometry instead of a face. — Symmetry Stranger observes that these tilted squares reveal a deliberate deviation from normality, and that something is either kept in or kept out.*
+*Geometry instead of a face. — Symmetry Stranger: “Something abnormal is either being kept in or kept out.”*
 
 My remark: “Strangely enough, five has always been my favourite number – since elementary school.”
 
