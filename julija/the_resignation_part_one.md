@@ -63,9 +63,9 @@ Ha-ha-ha!!! Señor Shadow, you are in Julija’s and my private space. You are a
 
 ...
 
-I point at the shadowy gentleman with my right forefinger: “I could have sworn that you used to be less solid, if solid at all!
+I point at the shadowy gentleman with my right forefinger: “I could have sworn that you used to be less solid, if solid at all!"
 
-What is going on?”
+What is going on?
 
 **192**
 
@@ -93,7 +93,7 @@ Me: “You do know what happened to the void angel, don’t you? He was hacked i
 
 **194**
 
-*Later that evening.* — We are still. I am kneeling, holding her black and white skirt, while she is standing on the grass seemingly unmoved, her face expressing nothing but cold indifference, yet her eyes are fixed on me.
+*Later that evening.* — We are still. I am crouching, holding her black and white skirt, while she is standing on the grass seemingly unmoved, her face expressing nothing but cold indifference, yet her eyes are fixed on me.
 
 **195**
 
@@ -171,7 +171,7 @@ I’m whispering when I remember how my surface cracked yesterday. And my head b
 
 **206**
 
-On Wednesday, when I was kneeling in front of her, grasping her skirt and begging for forgiveness, Julija was calmly pitying me because she somehow knew what was about to happen to me. She foresaw the crack; she had already foreseen everything in 2014.
+On Wednesday, when I was crouching before her, grasping at her skirt and begging for forgiveness, Julija was calmly pitying me because she somehow knew what was about to happen to me. She foresaw the crack; she had already foreseen everything in twou thousand fourteen.
 
 **207**
 
@@ -195,4 +195,4 @@ We will have to take the ferry, and so I will make the most out of its slowness 
 
 Suddenly I realize I am already there, and we are about to traverse the water. I burst into tears, “I broke the Keeper, Julija, I broke the Keeper!” The cracked, open-mouthed Keeper with visible distress in her eyes is being kept upright by two golems on the edge of the vessel. Still on my feet, I grab Julija’s skirt with both hands and continue to implore her: “I don’t want to be hanged. I don’t want to be hanged. I don’t want to be hanged.” When it’s time to disembark, I fall on my knees, sobbing, and grab Julija’s right leg. She doesn’t move. 
 
-Everything has come to a halt.
+Everything comes to a halt.
