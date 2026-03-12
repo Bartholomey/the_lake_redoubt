@@ -2,7 +2,7 @@
 
 <br>
 
-**47**
+**46**
 
 The Red Fortress is indeed untouchable. Even if you break me and tear out my heart, the Image would remain. We have discussed it over many pages, but its full description is scattered about. Collect the words and make one final description. 
 
@@ -14,7 +14,7 @@ The Red Fortress is indeed untouchable. Even if you break me and tear out my hea
 
 Now it is good.
 
-**48**
+**47**
 
 *Symmetry Stranger says that he is now ready to compare it to something inferior, trembling, and cracking.*
 
@@ -24,11 +24,11 @@ My reply: “You are hilarious.”
 
 My reply: “You really like the Fortress, don’t you? Despite all the stab-wounds in my heart ... I still want to be me. I don’t want to be anyone else; I don’t envy anyone else. Frankly, I find most people quite preposterous.”
 
-**49**
+**48**
 
-Had I said, “Don’t coddle me. Be my adversary. Attack me!! – If only for a short period of time,” what would have your attacks looked like?”
+Had I said, “Don’t coddle me. Be a worthy adversary. Attack me!! – If only for a short period of time,” what would have your attacks looked like?”
 
-*Symmetry Stranger responds with eight attacks, the last of which is the most striking: the Red Fortress has indeed judged me.*
+*Symmetry Stranger responds with eight attacks, the last of which is the most striking: the Red Fortress indeed judged me.*
 
 My reply: “Yes ... You are like a computer opponent in chess that cannot be beat. I am indeed broken beyond redemption and belief. Yes, I am too fragile to make a counter-attack upon your Earth-shattering onslaught. But I think I can still stand while bearing all these old and new wounds.”
 
