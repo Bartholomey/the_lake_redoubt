@@ -29,7 +29,7 @@ Groups and individuals appear from nothingness and disappear into nothingness. I
 
 **184**
 
-*It’s not the shadowy gentleman.* — People suddenly vanish, and I scream, “Nooo!! Don’t kill me!” There is someone, or something, grabbing my neck and holding a veil over my frightened, exhausted eyes. I can finally lift my legs, so I try to kick the hostile apparition yet disperse nothing but air molecules.
+*It’s not the shadowy gentleman.* — People suddenly vanish, and I scream, “Nooo!! Don’t hurt me!” There is someone, or something, grabbing my neck and holding a veil over my frightened, exhausted eyes. I can finally lift my legs, so I try to kick the hostile apparition yet disperse nothing but air molecules.
 
 The ethereal violator finally speaks: “Do you not remember what your Redoubt is made of?” The male voice proceeds to recite one of its fragments, but his utterances are cut off as if swallowed by water.
 
