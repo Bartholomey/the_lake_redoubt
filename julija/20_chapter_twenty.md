@@ -23,7 +23,7 @@ It’s amusing because she didn’t want us to be thirty as well. Heh, these wor
 
 **153**
 
-Sometimes, something sends my inner eyes back in time to re-experience a moment or event. During that process, Julija is standing in the background, silently, as if judging me. Just to be clear: when I said she is standing behind me – that’s her spirit. The sun does not radiate from beneath her skin in that form. The summoned Julija is different.
+Sometimes, something sends my inner eyes back in time to reëxperience a moment or event. During that process, Julija is standing in the background, silently, as if judging me. Just to be clear: when I said she is standing behind me – that’s her spirit. The sun does not radiate from beneath her skin in that form. The summoned Julija is different.
 
 **154**
 
