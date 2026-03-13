@@ -41,6 +41,8 @@ When ‘I’ saw the Red Fortress, I did not enter it. Does this fact not corres
 
 At any rate, tomorrow is the day of the summoning. It must be. It must materialize. She must be summoned. I cannot fail. I need her. I want to see what she will do. The last time I saw her was in that Byzantine dream; the last time I summoned her was in October last year; now it’s February. I must see her again. Today, at around 17:45, I saw a bright red light shining through the shattered blue-grey cloud blanket; it was so beautiful. It’s her. She's coming!
 
+Yes, I saw it; I saw beauty! But I could not feel it ...
+
 **191**
 
 In the Flatlands again.
