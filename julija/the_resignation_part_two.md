@@ -33,7 +33,7 @@ I’ve been weeping and screaming in spirit for so many years now. I won’t be 
 
 **216**
 
-It seems that Julija, who is now the sole ruler, has frozen the Flatlands because she wants to punish me for my lack of co-operation and the fact that I have started to treat her as if she were my mother. She thinks this is yet another proof that I am becoming more and more deformed. 
+It seems that Julija, who is now the sole ruler, has frozen the Flatlands because she wants to punish me for my lack of coöperation and the fact that I have started to treat her as if she were my mother. She thinks this is yet another proof that I am becoming more and more deformed. 
 
 **217**
 
