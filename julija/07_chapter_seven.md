@@ -77,7 +77,7 @@ Me: “So beautiful. I’m flattered.” I almost cry. My face becomes sad and I
 
 I imagine myself in chains observing a funny-looking wizard dancing while draining my energies: “The most catastrophic event would be ... the dissolution of my core in a pool of chemicals. – The walls would crumble, the lake would be drained, the Image would fade! Aaah!!”
 
-*S. S.: Yes, the Redoubt would lose all its meaning, while the Red Fortress would be deprived of its observer.”*
+*S. S.: “Yes, the Redoubt would lose all its meaning, while the Red Fortress would be deprived of its observer.”*
 
 I snap out of it, turn to you, and say, “Would you like to ask me something or make another observation?”
 
