@@ -157,7 +157,7 @@ The final era means that the final catastrophic event can come at any time, and 
 
 As I said, today, on Sunday, a major crack in my icy frame appeared. I opened a window and screamed uncontrollably for a minute or two, and I also shattered a picture frame hanging on the wall of the corridor. But the moment I threw it against the ground, I normalized and started to carefully deal with the shards. I still stepped on and fractured the picture itself, however. 
 
-My half-conscious screaming was provoked by the incessant distant barking. When I hear a bark, it’s like a sound of a weapon discharge; it makes me physically unwell. Never before I was able to scream like that. My despair is now even bigger. I am even more depressed and resigned to my fate.
+My half-conscious screaming was provoked by the incessant distant barking. When I hear a bark, it’s like I’m exposed to the sound of a weapon discharging; it makes me physically unwell. Never before I was able to scream like that. My despair is now even bigger. I am even more depressed and resigned to my fate.
 
 I flinch immediately; lately, I've been hallucinating the barking sounds. They shake my whole body. I feel anger and despair. Those dogs sound as though there are demons trapped in them as a punishment, so they howl in never-ending pain.
 
