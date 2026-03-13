@@ -63,4 +63,5 @@ Had only a couple of rays of her sun entered me, they would have merely tickled 
 You don’t know how powerful her sun is: it transforms me into pure emotion. She shines like a star when she walks through the door.
 
 **30**
+
 I have never poured out so many emotions in such a short time frame. Even my literary work you will soon become acquainted with is behind walls.
