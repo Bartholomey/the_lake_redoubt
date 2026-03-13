@@ -47,7 +47,7 @@ You talk as if you were just a story. I live in this horror ... We’ve been tal
 
 ...
 
-Be that as it may, now that Julija is gone, I have no desire to talk about her hands anymore. It’s a bleak Novembre day.
+Be that as it may, now that Julija is gone, I have no desire to talk about her hands anymore. It’s a bleak November day.
 
 **174**
 
