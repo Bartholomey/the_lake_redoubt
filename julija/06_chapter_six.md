@@ -45,7 +45,7 @@ Me: “That doesn’t make much sense, and it’s kind of schizophrenic.” *Lau
 
 By describing all these perfect shapes from the non-physical world, and as someone who doesn’t even like mathematics, I am probably making you very jealous. Anyway, what if it appeared because I’m desecrating the Fortress by sending its descriptions to a money-is-everyhing New World corporation? Just a silly thought.”
 
-*Symmetry Stranger asks himself if a holy object is being desecrated when someone talks about it. He says that it was me alone who had decided to reveal the aforementioned structure.*
+*Symmetry Stranger asks himself if a holy object is being desecrated when someone talks about it. He says that it was me alone who decided to reveal the aforementioned structure.*
 
 Me: “Yes, about that; like I said, everything spiraled out of control after Julija’s outburst. I was trying to clean her mess, and now I’m here. I don’t regret it. These words are probably just more words among countless other words.”
 
