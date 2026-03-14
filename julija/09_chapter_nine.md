@@ -23,7 +23,7 @@ I smile slightly awkwardly: “N-no, you can stay!”
 
 My voice rises, as if it was trying to cross into screaming, while my hands remain in the same position: “I don’t know! You tell me! I’m stuck with you here!”
 
-*The angel replies, “You are the creator of this world, and so even the wrath has been planned.”*
+*The angel replies, “You are the creator of this world, and so even the wrath was planned.”*
 
 I hide my face with both hands, and speak in a muffled voice: “I’m sorry, I shouldn’t have struck you. I’m sorry, I’m sorry! ... I know – the violence, the violence: it’s here by design. I was unable to decouple it from Lake Redoubt.” I lower my hands, revealing the weary eyes fixated on the ground.
 
