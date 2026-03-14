@@ -29,7 +29,7 @@ I have evaded many hurricanes since then. She thinks I’m deceiving her. I was 
 
 From my point of view, I did not violate the agreement, as the catastrophe never materialized. A court of equals would have to decide! And if Julija wants to claim the role of the judge, so can I.
 
-*Shadowy figure: “Yes, your Redoubt is not merely a shelter; it is also a sealed off court-house in which your case remaines unresolved.”*
+*Shadowy figure: “Yes, your Redoubt is not merely a shelter; it is also a sealed off court-house in which your case remains unresolved.”*
 
 Yes ...
 
