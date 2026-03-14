@@ -17,7 +17,7 @@ There she is – standing on the wall in her  black-tinted armour, defying the w
 
 “You understand certain corners of my mind well.” I gesture with my right hand, and the golem lowers its spear, its grey, stony eyes remaining fixated on the shadowy figure’s form. Suddenly, another rodent minion jumps from a hole, and throws my servant on the ground. The spear carrier, facing the grass, quickly rolls over and rises to its feet with such otherworldly speed, the rodent gasps in amazement while the golem plunges its dagger in its mouth, pushing its hand up so violently, it splits open the rodent’s face and skull. I’m shrieking: “Gaaah! Who will clean this mess?! I walk here!!!” I’m processing the scene that has just transpired in disbelief.
 
-*The shadowy figure: “Perhap...”*
+*The shadowy figure: “Perhap-”*
 
 Me: “Shut up!” Making a tormented face, I hold my heart with both hands. “It doesn’t matter. I think my end is drawing near. I sense something wrong in the air. Death by a thousand cuts? Maybe there’s no need for one big event at all – just enough amount of everyday annoyance. I’ll just ... go. I’ll grow wings and fly away!
 
