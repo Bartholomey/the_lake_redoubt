@@ -33,7 +33,7 @@ Me: “Had she mocked my work, she would have probably wounded the very core of 
 
 *Symmetry Stranger: “Is there something in your work, in your Lake Redoubt, that only the aforementioned person might understand?*
 
-I Laugh: “You really, really want to know what’s inside, don’t you?”
+I laugh: “You really, really want to know what’s inside, don’t you?”
 
 **45**
 
