@@ -57,7 +57,7 @@ I, the Buried One, am the ruler of the Flatlands and the Redoubt, not you. You a
 
 *The shadowy gentleman is now spitting out profoundly malicious insults.*
 
-Ha-ha-ha!!! Señor Shadow, you are in Julija’s and my private space. You are an invader. You come to my place and then act as if you own the place. You have no shame. You cannot touch me; the Red Fortress is floating before my eyes. How dare you mock my ethereal vision! The Red Fortress is hanging above the Flatlands and Lake Redoubt. It is untouchable. Now remember-
+Ha-ha-ha!!! Señor Shadow, you are in Julija’s and my private space. You are an invader. You come to my realm and then act as if you own the place. You have no shame. You cannot touch me; the Red Fortress is floating before my eyes. How dare you mock my ethereal vision! The Red Fortress is hanging above the Flatlands and Lake Redoubt. It is untouchable. Now remember-
 
 *He cuts me off; gibberish is oozing out of his mouth.*
 
