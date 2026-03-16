@@ -85,7 +85,7 @@ Julija makes a cute face, and says in a lovely voice, “He is the parasite.” 
 
 *The shadowy gentleman: “You are uh bleurgh ...”*
 
-No, heh, you can’t even hear properly. She is calling you a parasite, not me. You are indeed so broken, so very broken. Shhhh, shhhh ... She must not hear your ramblings. You are spiraling. Let me fix you. Stay still.
+No, heh, you can’t even hear properly. She is calling you a parasite, not me. You are indeed so broken, so very broken. Shhhh, shhhh ... She must not hear your ramblings. You are spiralling. Let me fix you. Stay still.
 
 Mr. Flaps! Help me!” 
 
