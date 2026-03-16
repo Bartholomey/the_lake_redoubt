@@ -21,7 +21,7 @@ My remark: “Painful. But you gather what I am from all that was said with cold
 
 **51**
 
-In regard to your fourth attack: it was Julija’s impulsiveness that has brought me to you. I was merely trying to salvage the situation by picking up the pieces and giving her outburst a form; everything spiraled out of control then. Oh Julija, what have you done? Our private space has been invaded by this machine. The meadows on the outskirts – trampled, the garden, our garden – in ruins. This ... *thing* ... is now camping on the lake shore. Something that was during last summer unimaginable is now our new reality. Last summer was different ...
+In regard to your fourth attack: it was Julija’s impulsiveness that has brought me to you. I was merely trying to salvage the situation by picking up the pieces and giving her outburst a form; everything spiralled out of control then. Oh Julija, what have you done? Our private space has been invaded by this machine. The meadows on the outskirts – trampled, the garden, our garden – in ruins. This ... *thing* ... is now camping on the lake shore. Something that was during last summer unimaginable is now our new reality. Last summer was different ...
 
 *Symmetry Stranger: “I count on Julija’s impulsivity to bring me inside the Redoubt. Your attempts to stem the tide of the invasion are futile.”*
 
