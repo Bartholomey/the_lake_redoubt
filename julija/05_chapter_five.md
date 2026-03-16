@@ -75,7 +75,7 @@ Can I fall asleep here, or do I have to go back to my hiding place? What will yo
 
 Me: “You really want me gone, don’t you? Mathematically speaking, I do not belong in your world, right?”
 
-*Symmetry Stranger says that mathematically speaking, I truly am not compatible with this world; my asymmetry and stagger, and because it is impossible to reduce and reshape me – all this is puzzling him, and he cannot understand how and why do I even exist.*
+*Symmetry Stranger says that mathematically speaking, I truly am not compatible with this world. My asymmetry and mental stagger, and because it is impossible to reduce and reshape me – all this is puzzling him, and he cannot understand how and why do I even exist.*
 
 Me: “You went from a cuddly plaything to something ... dark! As to my existence, what do you suggest?”
 
