@@ -47,7 +47,7 @@ By describing all these perfect shapes from the non-physical world, and as someo
 
 *Symmetry Stranger asks himself if a holy object is being desecrated when someone talks about it. He says that it was me alone who decided to reveal the aforementioned structure.*
 
-Me: “Yes, about that; like I said, everything spiraled out of control after Julija’s outburst. I was trying to clean her mess, and now I’m here. I don’t regret it. These words are probably just more words among countless other words.”
+Me: “Yes, about that; like I said, everything spiralled out of control after Julija’s outburst. I was trying to clean her mess, and now I’m here. I don’t regret it. These words are probably just more words among countless other words.”
 
 **59**
 
