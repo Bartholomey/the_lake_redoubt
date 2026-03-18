@@ -95,7 +95,7 @@ Me: “You do know what happened to the void angel, don’t you? He was hacked i
 
 **194**
 
-*Later that evening.* — We are still. I am crouching, holding her black and white skirt, while she is standing on the grass seemingly unmoved, her face expressing nothing but cold indifference, yet her eyes are fixed on me.
+*Later that evening.* — We are still. I am resting on my heels, holding her black and white skirt, while she is standing on the grass seemingly unmoved, her face expressing nothing but cold indifference, yet her eyes are fixed on me.
 
 **195**
 
