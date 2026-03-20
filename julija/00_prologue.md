@@ -75,7 +75,7 @@ I lie on the bed and imagine myself hugging a pillow while crying. I return: “
 
 **15**
 
-Perhaps there was a misunderstanding, so I’ll say it again: I saw it from an isometric view, a somewhat isometric view, as my position was  rotated to the right. I was very close to it, but I’d rather not try to assess the distance in meters. I was high enough to see past its walls, and my bank was at zero. So perhaps there was a misunderstanding, or perhaps there was not.
+Perhaps there was a misunderstanding, so I’ll say it again: I saw it from an isometric view – a somewhat isometric view, as my position was  rotated to the right. I was very close to it, but I’d rather not try to assess the distance in meters. I was high enough to see past its walls, and my bank was at zero. So perhaps there was a misunderstanding, or perhaps there was not.
 
 **16**
 
