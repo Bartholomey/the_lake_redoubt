@@ -38,6 +38,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [Chapter XXV — The Bloodlust Fragments](julija/25_chapter_twenty-five.md)
 -  
 - [The Summer Dream](julija/epilogue.md)
+- 
 - [The Resignation, Part One](julija/the_resignation_part_one.md)
 - [The Resignation, Part Two](julija/the_resignation_part_two.md)
 - [How it is Supposed to End](julija/how_it_is_supposed_to_end.md)
@@ -45,11 +46,6 @@ All characters, including the narrator, are fictional and do not represent the a
 
 # The Lake Redoubt 
 **Krepost**
-
-
-This book is a work of fiction. 
-It does not represent the views of the author. 
-It is not addressed to a potential reader.
 
 ---
 
