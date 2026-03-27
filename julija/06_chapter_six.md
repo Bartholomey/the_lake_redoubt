@@ -61,7 +61,7 @@ My remark: “There are no other options; no pure angels to tell the tale.”
 
 Would you like to make another observation?
 
-*Symmetry Stranger observes that everything I do is containment: that I create forms to house and hold together things that should disintegrate: "The horror is not that you are falling apart. The horror is that you never fall apart."*
+*Symmetry Stranger observes that everything I do is containment: that I create forms to house and hold together things that should disintegrate: "The horror is not that you are falling apart: the horror is that you never fall apart."*
 
 **61**
 
