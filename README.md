@@ -1,3 +1,7 @@
+---
+layout: default
+title: the_lake_redoubt
+---
 # Julija and her war 
 **Julija in njena vojna**
 
