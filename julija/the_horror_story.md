@@ -125,7 +125,7 @@ No words. Just tears flowing down: “Hhhhhhhhhhhhhhhhhhh, mmmmmmmmmmmmmmmmmmm..
 
 The tears are watering her skin. She uses them to wash her skin. Her trembling hands are used to wash her with the tears.
 
-“Why are my fingers pale? I used to have rosy fingers. Why ... I mean finger-tips."
+“Why are my fingers pale? I used to have rosy fingers.”
 
 It’s 21:40. “Why is time flying so fast? No, no, no ... Why are you moving so fast ...”  Touches her face with both hands, breathes. “AAAAAAAAAAAAAAAAAAAAAAH– okay, stop. Stop. Stop.” *Looks at her own corpse in spirit. Shrieks. Cries, cries, cries.*
 
