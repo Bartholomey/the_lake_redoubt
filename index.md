@@ -46,6 +46,7 @@ All characters, including the narrator, are fictional and do not represent the a
 - [The Resignation, Part One](julija/the_resignation_part_one.md)
 - [The Resignation, Part Two](julija/the_resignation_part_two.md)
 - [How it is Supposed to End](julija/how_it_is_supposed_to_end.md)
+- [Julija's Horror Story](julija/the_horror_story.md)
 ---
 
 # The Lake Redoubt 
