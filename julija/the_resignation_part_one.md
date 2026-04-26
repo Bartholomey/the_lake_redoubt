@@ -2,7 +2,7 @@
 
 <br>
 
-**186**
+**185**
 
 *The cloud.* — Now that you, dear reader, know about my Julija, it feels like I finished a chapter in my life; yesterday, when I went to bed, however, I sensed a huge, black cloud hovering over me. It was as though it had replaced the bedroom’s ceiling and even the roof. It was an omen of annihilation. The Flatlands now feel like a place that survived many battles, and I feel like a bird that wants to fly away. 
 
@@ -10,13 +10,13 @@
 
 After having realized that my place of abode had been wrapped in a cloud, seeing it clearly from a nearby hill, I imagined it descended because it wants me to step on it, so that it would carry me away. 
 
-**187**
+**186**
 
 *The black flower.* — I am a black geometrical forest flower, the structure of which looks uncannily complicated and consists of hundreds of short straight lines. I did not evolve into a more normal-looking flower; instead, that geometrical plant merely became, bigger, blacker, and grotesquely convoluted. 
 
 I now wish to quietly live as the black flower in the green forest – after having decoupled from the Flatlands and Lake Redoubt by putting them in a container. Does this make sense to you? They will be automatically called back when I need their protection – their walls and their army. May they, in their contained form, efficiently serve me as a magnet and dissolver for bad thoughts! One day, I will not be able to maintain my integrity anymore, and I will snap. I will fall on the ground and become obscured by the tall grass. It will be as though I was never there. ... I looked poisonous, but I wasn’t.
 
-**188**
+**187**
 
 *The final stage.* — It is obvious to me that I have entered the final phase of my life. My whole life was nothing but an act of containment, a wander through the tilted forest through which, I the black geometrical flower, was moving slowly and cautiously in the hope of finding its edge. The night became my ally, as it allowed me to blend in more easily. Nevertheless, the forest creatures noticed me; some of them tried to get rid of me, others confused my movement for death convulsions and ignored me; some thought I was poisonous, and others regarded me as cursed and were afraid of me.
 The forest itself is sensing that the black flower is an anomaly.
@@ -27,7 +27,7 @@ I am moving slowly through the grass, with tiny, unnatural movements, trying to 
 
 It’s nothing! Please excuse me while my inner form is being pushed out where it will calcify. 
 
-**189**
+**188**
 
 *The steel lid.* — I sense that steel lid again which is protecting my core. It reminded me that if it disappears, my worth would diminish; it would vapourize, as the external world regards me as worthless – broken and useless. It wants to grab me and forcefully align me with its grid. But I would shatter; it would do nothing but break me, and I would be dying in horrible pain. My fragments would scatter into tiny fragments and be swept away by the world’s cleaning machines. 
 
@@ -35,7 +35,7 @@ The importance of the mysterious and seemingly autonomous steel lid cannot be ov
 
 When ‘I’ saw the Red Fortress, I did not enter it. Does this fact not correspond to the steel lid not allowing me to open it?
 
-**190**
+**189**
 
 *Going to hell?* — Hell for me would be something like a never-ending scene of me entering and leaving a room inside of which I would be attacked by a group of small, annoying demons supervised by their masters, and then waking up to Julija’s apparition kneeling on the floor with her hair covering her face, saying she loves me.
 
@@ -43,7 +43,7 @@ At any rate, tomorrow is the day of the summoning. It must be. It must materiali
 
 Yes, I saw it; I saw beauty! But I could not feel it ...
 
-**191**
+**190**
 
 In the Flatlands again.
 
@@ -69,13 +69,13 @@ I point at the shadowy gentleman with my right forefinger: “I could have sworn
 
 What is going on?
 
-**192**
+**191**
 
 “Oh god, stop insulting Julija! I don’t want any more ruckus in the Flatlands. You must not under any circumstance talk to her as you talk to me! Show respect to her; bow.” I nod and a spear carrier rushes to me, trying to switch positions, but he is too short; he can’t reach his mouth. I pick him up and he latches on to him like a tick.
 
 “She’s here, she’s here, she’s here! Julija, Julija, Julija, forgive me!” I run somewhere, then slowly emerge from the distance with my head down, holding Julija’s right hand with my both hands. The golems shout, “She is the undying flower!”
 
-**193**
+**192**
 
 *Having been deprived of the tick by the ceremony, the shadowy gentleman  hurls insults at us.*
 
@@ -93,11 +93,11 @@ Flaps and his golems quickly surround us: “Señorito Shadovas, comma sielantli
 
 Me: “You do know what happened to the void angel, don’t you? He was hacked into pieces. Heh, you are broken, you parasite, you filthy, filthy swine!”
 
-**194**
+**193**
 
 *Later that evening.* — We are still. I am resting on my heels, holding her black and white skirt, while she is standing on the grass seemingly unmoved, her face expressing nothing but cold indifference, yet her eyes are fixed on me.
 
-**195**
+**194**
 
 *In the void again.* — Julija is gone. I am so sad. I am so disgusting. She didn’t say anything. Why do I still live? I don’t understand. Life must be squeezed out of me. I am so disgusting. Everything is dissolving around me. *Sobs.*
 
@@ -107,27 +107,27 @@ I am being hit by flashbacks. I want to return to yesterday when Julija was with
 
 Should just toss a coin?
 
-**196**
+**195**
 
 If I strangle myself, the suffering will cease. There will be no more pain when I wake up.
 
 The torment will never end. *Sobs.* I am too old to fight my brain. I can’t live anymore. The storm is attacking me constantly – even when I wake up. I survived for so long, but I can’t do it anymore. I am so tired. Everytime I wake up, I groan because the memory comes back to haunt me. I am so sad. To live for the sake of living is just so sad ... Every time I wake up, sadness floods my head and makes me curse myself. This feeling will never go away, so I must go away ...
 
-**197**
+**196**
 
 I am constantly waking up; my sleep is fragmented. And everytime I wake up, I’m tortured by my own mind. The fast-moving images assault me. I can’t fight these stabs and feelings anymore. I fought hard for years; I can’t do it anymore. I am too tired. My brain is in constant survival mode. I even think for other people, so to say. I can’t do it anymore. I want to shut down. I want to rest. But if I rest, if I sleep, I wake up and get assaulted by either memories, altered memories, or simply imagined violence. And if they are mixed with a beautiful memory, the pain becomes unbearable. I constantly hear screams in my head. For as long as I remember, my brain was operating under constant stress. I feel sick. It has always been like this; I was already mentally ill as a child. Broken beyond salvation. Tortured. I have survived for so, so long. But I can’t go on anymore. One day, the suffering will have to stop. *Sobs.* I can’t suffer any more. I can’t.
 
 I have always been so vulnerable and unsafe. I mean, I felt I was never truly safe. I could stay alive, but staying alive means more unbearable suffering. It seems the point when the pain becomes too exhausting has arrived. I can’t tolerate it anymore. I am too old; I want my brain to respect me. I’m not little  anymore. I constantly feel that I am not safe, that something will come to me and take me away. It’s a very old and premonition-like feeling. The suicidal thoughts are constant as well. I just can’t find a reason why I’m still fighting. I’ll be honest: every day, every night I’m thinking about strangling myself. “It's a logical conclusion,” I say to myself. “That day will arrive.” I am exhausted, and I can’t tolerate those unchanging thoughts anymore.
 
-**198**
+**197**
 
 I don't deserve to drink cold, fresh water, but I do it anyway. It’s the story of my life: I know that I am disgusting and unworthy of life, and yet I keep on living despite this never-ending suffering. Three decades of my brain hurting me, stabbing me every day, every night. I am so sorry; I should have never unleashed these thoughts at you. You are being burdened by my mentally ill ramblings. Forgive me, whoever you may be.
 
-**199**
+**198**
 
 Every little detail could trigger those stabbing thoughts. Under attack by violent thoughts again: the mannequins move unnaturally, and they are being broken while still wearing a calm expression. I feel that someone or something will force its way into my house and kidnap me. It’s just a thought, I know. It’s probably because I deserve to be taken away and tortured. I am such a waste of air and atoms. I deserve to be broken like those mannequins, and I must bear the pain with a calm expression. I must not burden other people. The doors are locked; nobody seems to be outside. But the image of those mannequins, a female mannequin ... – her face is slowly being deformed by a big, strong hand. *Sobs.* I can’t stand this anymore. I know you think I am overreacting, but the suffering is real and unbearable ... For me ... it’s unbearable. I’m sorry. I have had this feeling that someone will kidnap me and bury me alive since forever. It’s like a prophecy; a feeling that my life will eventually end gruesomely. That I will be trapped somewhere forever.
 
-**200**
+**199**
 
 *The next phase.* — Julija is the only one I need. I need no help from strangers or medication; they would make me even more miserable. I need Julija to see beauty, I need her eyes, which is why I keep summoning her. She and the summoning rituals are the only real reasons to live.
 
@@ -139,21 +139,21 @@ I feel grief and anger because I am never fully able to savour those special mom
 
 All these events I am describing won’t stop repeating. One day, though, I will crack. A tiny event will push me over the edge.
 
-**201**
+**200**
 
 Julija was so calm the last time because it became obvious I can’t take the suffering anymore, and that I will catastrophically crack sooner or later. She pitied me.
 
 Julija’s cold expression and calm demeanour was the culmination; I have truly entered the final era of my life.
 
-**202**
+**201**
 
 The final era means that the final catastrophic event can come at any time, and that my powers to resist are fading. As you can see, these words make no sense, because I am unreachable and unmovable. I am a sinking statue waiting to crack under sufficient pressure. It’s inevitable.
 
-**203**
+**202**
 
 *A nightmarish end.* — When I was about to fall asleep the last time, the tortured barking sound prevented the process yet again, and I was instantly flooded with thick despair and panic. My surface is cracking; it cracked today, actually. And also today, I had a nightmare in which I saw a woman (me) being forced to babysit a daughter of her relatives. And for some reason we were situated on a desolate country road surrounded by a still, quiet forest. We were both wearing eerie black and white dresses, but unlike her I did not look preposterous in it. Be that as it may, that girl would not stop climbing up a strange slide that was standing near the asphalt road. I kept telling her, “Stop doing that already; you will fall,” and at one point she replied, “I cannot die. I am protected by a guardian.” I forgot the exact term, but it was obvious her 'guardian' was something ethereal, so I thought to myself, “There are obviously some loose screews in her head.” I retorted, “You will not die; you will be damaged.” And at that moment she lost control and hit her head against the road. I heard a crack. “Oh god,” I said to myself while watching her touching the wound which produced gory sounds. I was standing there paralyzed, eventually, however, I slowly approached her to examine the wound, saying, “Don’t touch that. Don’t touch that. Don’t move.” The most horrific part was the fact I was not feeling distressed; I was calm and annoyed. I asked myself, after having seen her hands spasming, and after realizing my prophecy had materialized, “Should I call an ambulance or ask the woman with her kid approaching us to drive us to my car, so that I could transport her to the hospital myself?” And I just could not decide. I was more preoccupied with me feigning distress, so as not to appear weird or worse, than her well-being. Then I woke up. I did not even try to prevent her from using that slide. 
 
-**204**
+**203**
 
 As I said, today, on Sunday, a major crack in my icy frame appeared. I opened a window and screamed uncontrollably for a minute or two, and I also shattered a picture frame hanging on the wall of the corridor. But the moment I threw it against the ground, I normalized and started to carefully deal with the shards. I still stepped on and fractured the picture itself, however. 
 
@@ -165,21 +165,21 @@ Everything feels apocalyptic after today’s screams.
 
 Indeed, I stooped so low that I opened a window and screamed at the barking sound that did not yield. And I was almost unconscious; as if I were possessed. Something pulled me up, made me writhe in agony, and after having forced me to open the nearest window, I shrieked  like a banshee. I could not resist the possession.
 
-**205**
+**204**
 
 I am still recovering from yesterday’s shrieking. My surface has cracked. Now I’m constantly mumbling something to myself. I am clearly going insane.
 
 I’m whispering when I remember how my surface cracked yesterday. And my head becomes heavy, and I close my eyes.
 
-**206**
+**205**
 
 On Wednesday, when I was crouching before her, grasping at her skirt and begging for forgiveness, Julija was calmly pitying me because she somehow knew what was about to happen to me. She foresaw the crack; she had already foreseen everything in twou thousand fourteen.
 
-**207**
+**206**
 
 *I resign.* — No one will take me seriously in the Flatlands anymore – not Mr. Flaps, and not the golems. I have lost the ability to command them. Now everything is in Julija’s hands; she is the only remaining ruler. I had a vision: everything is gearing towards my execution in the Lake Redoubt, which will come after my official confession that Julija was right in the year of two thousand and fourteen, and in the year of two thousand and fifteen, and in the year of two thousand and sixteen, and ...
 
-**208**
+**207**
 
 *Record the ceremony!* — I just saw Julija in her ghostly form calmly saying with her eyes closed and her arms crossed, “Remember those July songs.” She was standing next to the window. On the right.
 
@@ -191,7 +191,7 @@ I must admit that Julija was right, and I must record it. It is my obligation. I
 
 I am in the process of organizing the necessary text. I must make it presentable for the ceremony. I will be trailing Julija with my head down.
 
-**209**
+**208**
 
 We will have to take the ferry, and so I will make the most out of its slowness and cling to her for the last time: “Don’t go. Don’t leave me alone. Don’t go.” She will probably stay silent and indifferent.
 
