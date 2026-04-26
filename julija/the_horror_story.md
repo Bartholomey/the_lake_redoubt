@@ -11,7 +11,7 @@
 
 *In the afternoon. —* *Breathes in the fresh, ‘green’ air.* “WHY DO I ALWAYS REMEMBER DIFFERENT SMELL??? NO, NO, NO, I LOVE the pink colour, but not the Sun itself. Go away, go away, go away!
 
-*Dusk. —* God. Imagine stopping the motion ... No sunrise ... Why can’t the next night be eternal?”
+*Dusk. —* God. Imagine stopping the motion ... No sunrise. Why can’t the next night be eternal?”
 
 She tries to end herself every night. At 0:00, she uses the rope, faints, yet wakes up every time. “Why not simply lie in the bed? It’s way more comfortable.”
 
@@ -23,7 +23,7 @@ She tries to end herself every night. At 0:00, she uses the rope, faints, yet wa
 
 “It took me one hour and forty-five minutes to wash my hair. Every third day. It’s taking too long."
 
-She tries to hang herself everyday because a voice told her, “One day, you will die.”
+She tries to hang herself every day because a voice told her, “One day, you will die.”
 
 “What does die even mean?
 
@@ -33,31 +33,29 @@ The morning light is here, yet I’m still alone. Did I even have a mother? Was 
 
 It’s 5 a.m.. “Disgusting Sun is coming again.” 
 
-She must move; she can’t let the sun touch her.
+She must move; she can’t let the sun touch her. “I would burn ... but not die. The forever flower ... I am ... the forever flower." She imagines the rain falling on the flower; she imagines herself licking the flower.
 
-“I would burn ... but not die. The forever flower ... I am ... the forever flower." She imagines the rain falling on the flower; she imagines herself licking the flower.
-
-“Wait ... what if I drown myself ... Bath .. yes.” The sangre azul she sees beneath the water.
+“Wait ... what if I drown myself. Bath ... yes.” The sangre azul she sees beneath the water.
 
 “I have no language. I am nothing. Today is not the time for hair.” Her pale skin is smiling in the mirror – so beutiful, so calm. She holds her hair. “Why can’t i die?”
 
-*Looks out of the window.* “The sky ... so beautiful.” *Gasp.* “The clouds are falling! Oh beauty ... so beautiful ... Today ... I will die. And I realize ... the cold sky suits me ... Blue twilight sky ... like my veins."
+*Looks out of the window.* “The sky ... so beautiful.” *Gasp.* “The clouds are falling! Oh beauty ... so beautiful ... Today ... I will die. And I realize ... the cold sky suits me. Blue twilight sky ... like my veins."
 
 **Day 3**
 
 **223**
 
-Her final words. But she does not die. Wakes up at 5 a.m., dangling. She is twitching; her hair is down. Convulsing – but not dying.
+Her final words. But she does not die. Wakes up at 5 a.m. dangling. She is twitching; her hair is down. Convulsing – but not dying.
 
 “Ah.” *Sigh. Unties the knot.*
 
 She rises her fist to her heart – why won’t it stop beating?
 
-“Oh sun, star: why are you so bodalast?” (– daggery)
+“Oh sun, star: why are you so *bodalast?”* (– daggery)
 
 ...
 
-“IT’S SO BEAUTIFUL! THE ORANGE COLOUR! THE OMNIPRESENT ORANGE COLOUR! THIS IS PARADISE!! Sun .. please.. don’t come today. Not today. Please, stop. Don’t move. 
+“IT’S SO BEAUTIFUL! THE ORANGE COLOUR! THE OMNIPRESENT ORANGE COLOUR! THIS IS PARADISE!! Sun .. please ... don’t come today. Not today. Please, stop. Don’t move. 
 
 Give me an eternal night.
 
@@ -79,19 +77,19 @@ It’s embarrasing, yes, but she walks around the house half-naked. Head down, h
 
 No ... There is no black dress to be found. The closet holds ... her past clothes ... but she must not open it.
 
-“I think the next night is the final night: my death. What is wrong with my life? *Stares at the edge of the forest.* “There is no final evening. Just endlessness. Or is it? Perhaps one day ...”
+“I think the next night is the final night: my death. What is wrong with my life?” *Stares at the edge of the forest.* “There is no final evening. Just endlessness. Or is it? Perhaps one day ...”
 
 **225**
 
 The house produces no sound. The deafening silence.
 
-“My finger-nails have become pale like my skin ... Why?
+“My finger-nails have become pale like my skin ... Why?”
 
 It’s so beautiful outside: the blue-grey sky ... and the green meadow, forest ... “So beautiful.” 
 
 Her eyes are always half-closed. Her eye-lashes are so long, so long. A friend would say, “Cut your eye-lashes.”
 
-Covering her pale blue eyes after she wakes up. “Stop. Stop. Stop staring at me. I can’t live like this any more. Too bright ... Why is this world so bright ... Today ... Wait – what do I do today? Oh ... I need to die. But why doesn’t it work ... Nothing works: drowning in the bath ... does not work. Slashing my throat with a kitchen knife? But that’s disgusting ... 
+*Covering her pale blue eyes after she wakes up.* “Stop. Stop. Stop staring at me. I can’t live like this any more. Too bright ... Why is this world so bright ... Today ... Wait – what do I do today? Oh ... I need to die. But why doesn’t it work ... Nothing works: drowning in the bath ... does not work. Slashing my throat with a kitchen knife? But that’s disgusting ...” 
 
 A voice: “One day, you will die.”
 
@@ -115,7 +113,7 @@ She looks at her hand. “You will die for nothing.”
 
 It’s 20:16. “I missed the golden hour. Brava. I have no language. I have no nation. I am nothing.” Puts her hand on her skin ... – it’s sweating. She cries. Tears are dropping down her face. “I must die. Today, I will die. Imagine if I die falling down a cliff. Someone would check me. And I would have to pretend I am dead. Eyes open. But breathing?” Tears drop down her pale face. “Mmmmmmmm, mmmmmmmmmm...”
 
-No words. Just tears flowing down: “Hhhhhhhhhhhhhhhhhhh, mmmmmmmmmmmmmmmmmmm... *Hands trembling.*
+No words. Just tears flowing down: “Hhhhhhhhhhhhhhhhhhh, mmmmmmmmmmmmmmmmmmm...” *Hands trembling.*
 
 The tears are watering her skin. She uses them to wash her skin. Her trembling hands are used to wash her with the tears.
 
@@ -137,7 +135,9 @@ She is shaking. She is convulsing – but still conscious.
 
 “I failed.”
 
-She has been convulsing for 1 hour. “Please ... just let me die.”
+She has been convulsing for 1 hour. 
+
+“Please ... just let me die.”
 
 *Imagines herself falling from a mountain, red blood adorning her corpse.* A villager witnesses her ‘death’. Twitching. But it’s fake.
 
@@ -173,7 +173,7 @@ She remembers the words: “One day, you will die.” Starts laughing, “...hhh
 
 “Ow, my head.” *Touching her head.* “I can’t stand this ritual anymore. It’s grotesque. This existence. It’s painful. PAINFUL! I can’t go through this ritual anymore ... Why can’t I die? The hair washing ritual. Two hours ... So long and sad.”
 
-There is nothing in her house. Nothing but silence. She even makes sure to step quietly, so as to not upset the silence.
+There is nothing in her house. Nothing but silence. She even makes sure to step quietly so as to not upset the silence.
 
 “No more thoughts ... Too tired ... I just want to sleep, sleep, sleep forever. This ... existence ... or whatever you can call it, makes no sense; it’s .... what even is IT? Who ... what ... where ... am I ... what is THIS? Ow, my head.” *Touches her head, shaking.*
 
@@ -189,7 +189,7 @@ She is saying these words in spirit; she does not move her mouth. It would be to
 
 **231**
 
-She is shaking. “...mmmmmmmmmmmmmm... let me go, let me go, I’m in pain ... It hurts so much ... I can’t do this any more. I CAN’T HANDLE THIS HAIR ANY MORE! SO LONG. SO LONG. SO LONG.”
+She is shaking. “...mmmmmmmmmmmmmm... let me go, let me go, I’m in pain. It hurts so much ... I can’t do this any more. I CAN’T HANDLE THIS HAIR ANY MORE! SO LONG. SO LONG. SO LONG.”
 
 It’s over. Perhaps that day has come.
 
@@ -213,7 +213,7 @@ Again she was on the cold, white staircase. She returns to bed.
 
 At the upper end of the staircase, she prepared the footstool, like always, to stand on. When she talks, it’s only in spirit; the house is horrifically quiet. There is no sound in the house. Yes, perhaps her moving legs ... – the sheet may produce some sound ... and that’s it. 
 
-The sound starts skipping. “Perhaps if I would ...” *Stops mid sentence.* “Why do I even ... ? I don’t understand. I have no language, no nation ... I am nothing. I live for nothing. Alright, alright, time’s up. I have to go now. I heard it: ‘Today, you will die.’ This is it! It’s time to go now! Yes! This is it ... Yes! This is it!!”
+“Perhaps if I would–” The sound in her head starts skipping. “Why do I even ... ? I don’t understand. I have no language, no nation ... I am nothing. I live for nothing. Alright, alright, time’s up. I have to go now. I heard it: ‘Today, you will die.’ This is it! It’s time to go now! Yes! This is it ... Yes! This is it!!”
 
 This is it. She looks at her once-rosy fingernails ... and sighs ... “This is it.” Her pale hands bring the noose over her head. “Yes, finally.” *Caresses the rope.*
 
