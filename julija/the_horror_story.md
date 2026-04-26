@@ -31,21 +31,15 @@ The morning light is here, yet I’m still alone. Did I even have a mother? Was 
 
 **222**
 
-It’s 5 a.m.. “Disgusting Sun is coming again.”
+It’s 5 a.m.. “Disgusting Sun is coming again.” 
 
 She must move; she can’t let the sun touch her.
 
-“I would burn ... but not die. The forever flower ... I am ... the forever flower."
+“I would burn ... but not die. The forever flower ... I am ... the forever flower." She imagines the rain falling on the flower; she imagines herself licking the flower.
 
-She imagines the rain falling on the flower; she imagines herself licking the flower.
+“Wait ... what if I drown myself ... Bath .. yes.” The sangre azul she sees beneath the water.
 
-“Wait ... what if I drown myself ... Bath .. yes.”
-
-The sangre azul she sees beneath the water.
-
-“I have no language. I am nothing. Today is not the time for hair.”
-
-Her pale skin is smiling in the mirror – so beutiful, so calm. She holds her hair. “Why can’t i die?”
+“I have no language. I am nothing. Today is not the time for hair.” Her pale skin is smiling in the mirror – so beutiful, so calm. She holds her hair. “Why can’t i die?”
 
 *Looks out of the window.* “The sky ... so beautiful.” *Gasp.* “The clouds are falling! Oh beauty ... so beautiful ... Today ... I will die. And I realize ... the cold sky suits me ... Blue twilight sky ... like my veins."
 
