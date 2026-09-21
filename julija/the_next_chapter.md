@@ -226,7 +226,7 @@ I like our home. It’s a safe place; it’s the only safe place in this world. 
 
 *Another summer. —* The Buried One: “I was destined to live in a [deleted] surrounded by water; instead, I’m hiding like a witch! Nooo–”
 
-Julija to the voice: “I WILL SMASH HER HEAD AGAINST THE TABLE IF SHE DOES NOT SHUT UP!!!”
+Julija to the voice: “I WILL SMASH HER HEAD AGAINST THE TABLE IF SHE WON’T SHUT UP!!!”
 
 The Buried One: “My imaginary [deleted], [deleted] from the woods; she used to come to the edge of the forest. I don’t have her anymore.” 
 
