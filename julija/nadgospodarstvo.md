@@ -204,9 +204,9 @@ Julija: “I agree!”
 The view slips out of the window, fixating itself on the plane’s left wing gliding high above the clouds.
 The state symbols are revealed: 
 
-/the_lake_redoubt/images/barve_Nadgospodarstva.png
+![The flag](/the_lake_redoubt/images/barve_Nadgospodarstva.png)
 
-/the_lake_redoubt/images/smrt.png
+![The battle version](/the_lake_redoubt/images/smrt.png)
 
 ### Nearing their destination
 
