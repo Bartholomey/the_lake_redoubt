@@ -1,5 +1,5 @@
 ---
-prev: /the_lake_redoubt/julija/the_next_chapter.html
+prev: /the_lake_redoubt/julija/nadgospodarstvo.html
 next: /the_lake_redoubt/krepost/02_kaj_je_plemstvo.html
 ---
 # The Lake Redoubt
