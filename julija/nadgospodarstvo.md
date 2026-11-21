@@ -29,11 +29,11 @@ prisloni k drevesu, kar služi kot nekakšna oblika nemega nagovora, in tako nad
 
 “Mrki popotnik, oh, mrki popotnik:<br> 
 Čemu tak visoko čepiš?<br>  
-Mar si zaslužiš videti več kot mi?
+Mar si zaslužiš videti več kot mi?<br>
 
 Krilati tavalec, oh, krilati tavalec:<br> 
 Čemu tak resno v daljavo bolščiš?<br>  
-Mar je –” 
+Mar je –”<br>
 
 Julija: “Nobody wanted to hear that, you [erased] [erased] [erased]!!!”
 
@@ -134,7 +134,7 @@ Julija’s black-and-white cat was obscured by the arm-rest.
 
 Julija: “Myavava! There you are!”
 
-Meow-Meova: “<div style="text-align: center; white-space: pre;">(=^      .      ^=)</div>”
+Meow-Meova: “<span style="white-space: pre;">(=^      .      ^=)</span>”
 
 **255**
 
