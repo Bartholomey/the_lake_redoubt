@@ -404,7 +404,7 @@ Julija: “Why did you fail to die in [erased]?”
 
 The woman: “Because it was April first.”
 
-Julija: Laughter.
+Julija: *Laughter.*
 
 .<br> 
 .<br> 
