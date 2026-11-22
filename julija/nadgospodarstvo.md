@@ -43,10 +43,7 @@ The Buried One: “Hear this, then:”
 
 **248**
 
-Note: the *towers* and *towerlets* are meant to be understood as underground command complexes. The *Nadgospodarstvo* (upper case)
-was made to be a set of many tiny military states (The Nadgospodarstvo consists of multiple *nadgospodarstvos* [lower case]) scattered around the 
-globe in the not-so-distant future, with never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were 
-turned into industrial zones almost devoid of human life. The scenes more often than not take place in nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. 
+Note: the *towers* and *towerlets* are meant to be understood as underground command complexes. The *Nadgospodarstvo* was made to be a set of many military states* scattered around the globe in the not-so-distant future, with never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were turned into industrial zones almost devoid of human life. The scenes more often than not take place in nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. *(The Nadgospodarstvo (capitalized) consists of multiple *nadgospodarstva* [lower case].) 
 
 **249**
 
@@ -143,7 +140,7 @@ explain how this flying-machine works.”
 Podstrateg: “Well, Sir, the knowledge is not publicly available. Before I answer you, I would be obliged to
 personally request access to our common district’s* engineering department. First, I would have to ask you for permission, 
 my gospodar. So in the main, the workings of this vessel are kept secret, and the engineers are not here with us at this very moment.” 
-(*The nadgospodarstvo to which his nadgospodarščina depends upon.)
+(*The nadgospodarstvo upon which the gospodar's nadgospodarščina depends.)
 
 ...
 
@@ -242,7 +239,7 @@ Gspdr.: “Replay the conversation.”
 The pilot returns to the flight compartment and plays the recording through the speakers above the little
 red table. 
 
-Gspdr.: “Those séance people ... That order came from the district’s towerlet? Why would they –”
+Gspdr.: “Those séance people ... That order came from the towerlet? Why would they –”
 
 Julija: “So, I don’t want to crash. Could you let the pilot land manually? He knows how to land manually,
 right?”
@@ -274,7 +271,7 @@ Julija rolls her eyes.
 
 While the plane is taxiing, they come into view: parked there in the open the seven or so thin
 long-range fighter-bombers with retractable canards but no pilot compartment; they are entirely run by
-the district towerlet’s Synthetic Pseudoconsciousness. 
+the local towerlet’s Synthetic Pseudoconsciousness. 
 
 ### Still in the plane
 
