@@ -43,11 +43,10 @@ The Buried One: “Hear this, then:”
 
 **248**
 
-Note: the towers and towerlets are meant to be understood as underground command complexes. The Nadgospodarstvo
-was made to be a set of many tiny military states scattered around the globe in the not-so-distant future, with 
-never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were 
-turned into industrial zones almost devoid of human life. The scenes more often than not take place in 
-nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. 
+Note: the *towers* and *towerlets* are meant to be understood as underground command complexes. The *Nadgospodarstvo* (upper case)
+was made to be a set of many tiny military states (The Nadgospodarstvo consists of multiple *nadgospodarstvos* [lower case]) scattered around the 
+globe in the not-so-distant future, with never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were 
+turned into industrial zones almost devoid of human life. The scenes more often than not take place in nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. 
 
 **249**
 
@@ -143,7 +142,8 @@ explain how this flying-machine works.”
 
 Podstrateg: “Well, Sir, the knowledge is not publicly available. Before I answer you, I would be obliged to
 personally request access to our common district’s* engineering department. First, I would have to ask you for permission, 
-my gospodar. So in the main, the workings of this vessel are kept secret, and the engineers are not here with us at this very moment.” (
+my gospodar. So in the main, the workings of this vessel are kept secret, and the engineers are not here with us at this very moment.” 
+(*The nadgospodarstvo to which his nadgospodarščina depends upon.)
 
 ...
 
