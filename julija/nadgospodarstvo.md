@@ -43,7 +43,7 @@ The Buried One: “Hear this, then:”
 
 **248**
 
-Note: the *towers* and *towerlets* are meant to be understood as underground command complexes. The *Nadgospodarstvo* was made to be a set of many military states* scattered around the globe in the not-so-distant future, with never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were turned into industrial zones almost devoid of human life. The scenes more often than not take place in nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. *(The Nadgospodarstvo (capitalized) consists of multiple nadgospodarstva [lower case].) 
+Note: the *towers* and *towerlets* are meant to be understood as underground command complexes. The *Nadgospodarstvo* was made to be a set of many military states* scattered around the globe in the not-so-distant future, with never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were turned into industrial zones almost devoid of human life. The scenes more often than not take place in nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. *(The Nadgospodarstvo [capitalized] consists of multiple nadgospodarstva [lower case].) 
 
 **249**
 
@@ -169,7 +169,7 @@ making her look [erased]: “Imagine if we were descending through Jupiter: its 
 
 The gospodar and podstrateg look at each other. 
 
-Gspdr: “I disapprove of that execution method. In fact, I’ve been manœuvring to get it abolished. I’ve set
+Gspdr.: “I disapprove of that execution method. In fact, I’ve been manœuvring to get it abolished. I’ve set
 its abolition as one of my life’s goals.”
 
 He’s talking about the state punishing those found guilty of crimes against it – about the televised grinding done by
@@ -192,7 +192,7 @@ Gspdr.: “Guard, what do you make of this turn of events? Should we have involv
 
 The guard: “Shoodn’t of attacked.”
 
-Gspdr: “Indeed. They should not have dared to blindside us like that; who do they think they are? This is
+Gspdr.: “Indeed. They should not have dared to blindside us like that; who do they think they are? This is
 what they get for insulting us like that. And what is your opinion on this matter, gospodar Julija?”
 
 Julija: “I agree!”
