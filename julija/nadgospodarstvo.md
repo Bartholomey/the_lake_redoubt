@@ -172,7 +172,7 @@ The gospodar and podstrateg look at each other.
 Gspdr: “I disapprove of that execution method. In fact, I’ve been manœuvring to get it abolished. I’ve set
 its abolition as one of my life’s goals.”
 
-He’s talking about the state punishing those found guilty of crimes against it – about its televised grinding by
+He’s talking about the state punishing those found guilty of crimes against it – about the televised grinding done by
 the Earth’s atmosphere. 
 
 “Now, gospodar, are you trying to confess something?” 
@@ -201,6 +201,8 @@ The view slips out of the window, fixating itself on the plane’s left wing gli
 The state symbols are revealed: 
 
 ![The flag](/the_lake_redoubt/images/barve_Nadgospodarstva.png)
+
+The battle version:
 
 ![The battle version](/the_lake_redoubt/images/smrt.png)
 
