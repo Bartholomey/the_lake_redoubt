@@ -43,7 +43,7 @@ The Buried One: “Hear this, then:”
 
 **248**
 
-Note: the *towers* and *towerlets* are meant to be understood as underground command complexes. The *Nadgospodarstvo* was made to be a set of many military states* scattered around the globe in the not-so-distant future, with never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were turned into industrial zones almost devoid of human life. The scenes more often than not take place in nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. *(The Nadgospodarstvo (capitalized) consists of multiple *nadgospodarstva* [lower case].) 
+Note: the *towers* and *towerlets* are meant to be understood as underground command complexes. The *Nadgospodarstvo* was made to be a set of many military states* scattered around the globe in the not-so-distant future, with never-ending battles raging in the sky, on land and at sea. There are no huge cities anymore; they were turned into industrial zones almost devoid of human life. The scenes more often than not take place in nature with mountains in the distance, or on those huge, walled-off airfields surrounded by greenery, and so on. *(The Nadgospodarstvo (capitalized) consists of multiple nadgospodarstva [lower case].) 
 
 **249**
 
