@@ -48,7 +48,7 @@ Note: the *towers* and *towerlets* are meant to be understood as underground com
 **249**
 
 Julija, a *gospodar,* governing a small, remote *nadgospodarščina* in the middle of an ocean, wants to give orders to 
-her *podstrateg,* calling him into her towerlet. (See the next chapter for the clarification of these terms.)
+her *podstrateg,* calling him into her towerlet. (These terms will be clarified in the next chapter.)
 
 The podstrateg: “You called for me, my gospodar?”
 
