@@ -300,8 +300,8 @@ Julija returns to the dark room, wanting to sit down in front of her personal co
 already someone sitting there, in her chair. She sighs, pulls out another chair, crosses her legs and
 holds her right knee with her hands. She is moving her right leg as if it were a clock: tick-tock.  
 
-Yes, Julija is sitting in the chair beside another person. Her legs are crossed, and she is holding her right
-knee with both of her hands while moving it. It’s like a clock: tick-tock, tick-tock.
+Yes, Julija is now sitting in the chair beside another person. Her legs are crossed, and she is holding her 
+knee with both of her hands while her right leg is moving like a clock: tick-tock, tick-tock.
 
 Julija: “Who are you?”
 
