@@ -183,8 +183,8 @@ A TV voice different from that from before interrupts her silence with a report:
 a devastating blow *[static]* [...] the enemy fleet is no more.” The screen makes it obvious a powerful 
 war-head has been detonated.
 
-Gspdr.: “Splendid. You yourself know that our state motto is domination, exploration, etc., etc. I, 
-however, think it should be dominate, penetrate, s–”
+Gspdr.: “Splendid. You yourself know that our state motto is ‘Domination, exploration’, etc., etc. I, 
+however, think it should be ‘Dominate, penetrate, s–’”
 
 Julija takes an audible sip.
 
@@ -285,7 +285,7 @@ numbers was amusing and looked at the note which said, “YOU ARE DISGUSTING.”
 
 Julija: “But my mother is dead.” 
 
-The moment she proclaimed that everything around her was twisted into a grotesque smile – her fellow
+The moment she proclaimed that, everything around her was twisted into a grotesque smile – her fellow
 gospodar’s face, too. She was in her bed at the country-side house where nothing moves, where no one ever
 knocks. She opened the refrigerator and became annoyed: there should be a large glass of chilled water in
 there, but there is not. It should be, but it’s not. 
@@ -300,7 +300,7 @@ Julija returns to the dark room, wanting to sit down in front of her personal co
 already someone sitting there, in her chair. She sighs, pulls out another chair, crosses her legs and
 holds her right knee with her hands. She is moving her right leg as if it were a clock: tick-tock.  
 
-Julija is sitting in the chair beside another person. Her legs are crossed, and she is holding her right
+Yes, Julija is sitting in the chair beside another person. Her legs are crossed, and she is holding her right
 knee with both of her hands while moving it. It’s like a clock: tick-tock, tick-tock.
 
 Julija: “Who are you?”
@@ -337,7 +337,7 @@ Julija opens her wet eyes. She is in her bed again. It’s dark and still.
 
 **266**
 
-Julija is now sitting on her bed with her legs crossed, her hands touching her right knee; she closes her
+Julija is now sitting on her bed with her legs crossed, her hands touching her knee; she closes her
 eyes: “Meow, meow, she can’t do that! No, can’t do that! Can’t do that.”
 
 Julija stops moving her right leg: “I am a contessa. Are you able to serve me peppermint tea? Said tea is
@@ -379,7 +379,7 @@ The Second-Class physician: “Hmmm, let me see.” He checks her heart. “Her 
 
 Julija opens her mouth; it presents the observers with a black-hole-like blackness.
 
-Gspdr.: “Aaah!!! What is happening!?”
+Gspdr.: “Aaah!!! What is happening?!”
 
 **270**
 
